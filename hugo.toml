@@ -20,13 +20,12 @@ ignoreErrors = ["error-disable-taxonomy"]
   # The "description" of your website. This is used in the meta data of your generated html.
   title = "JCRS"
   description = "Taking our environment by the steering wheeel. 💜"
-
   favicon = "static/favicon.png"
+
   # images = ["images/social-graphic.png"]
-  
   hideMadeWithLine = true
   enablePostNavigator = true
-  dateFormat = "2 Jan 2006"
+  dateFormat = "Mon 2 Jan 2006"
 
 # Configure markup highlighter to match "Bearblog" aesthetics
 # see https://gohugo.io/configuration/markup/#highlight
