@@ -1,5 +1,5 @@
 baseURL = "https://john.lgbt"
-theme = 'hugo-bearblog'
+theme = "hugo-bearblog"
 
 title = "John's Creative Relationship Space"
 author = "masculine@john.lgbt"
