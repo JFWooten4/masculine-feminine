@@ -25,7 +25,7 @@ ignoreErrors = ["error-disable-taxonomy"]
   # images = ["images/social-graphic.png"]
   hideMadeWithLine = true
   enablePostNavigator = true
-  dateFormat = "Mon 2 Jan 2006"
+  dateFormat = "Mon Jan 2 06"
 
 # Configure markup highlighter to match "Bearblog" aesthetics
 # see https://gohugo.io/configuration/markup/#highlight
