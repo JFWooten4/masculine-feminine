@@ -1,12 +1,7 @@
-+++
+---
 title = "🌱 Inspirations for Starting This"
 date = "2025-08-19"
-description = "First article stretching fingers."
-tags = [
-    "kayla",
-    "politics",
-]
-+++
+---
 
 It’s nearly 2am, but I just can’t go to bed with Kayla right now. We’ve been dating for a solid bit over four years, after we met in college. It was into the end of COVID, but still early enough that she was locked down for two weeks along with the rest of the softball team when we first started dating.
 
