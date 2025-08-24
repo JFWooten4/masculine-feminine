@@ -1,23 +1,20 @@
 <style>
-  :root {
-    --bg: #1a0b2e;     /* deep dark purple base */
-    --fg: #ffffff;
-    --accent: #ffcc00; /* link color */
+  body {
+    background-color: #1a0b2e;
+    background-image:
+      radial-gradient(rgba(255,255,255,0.04) 1px, transparent 1px),
+      radial-gradient(rgba(0,0,0,0.15) 2px, transparent 2px);
+    background-size: 22px 22px, 60px 60px;
+    background-attachment: fixed;
+    color: #ffffff;
+    font-size: 1.15em;
   }
-  a:hover {
-    color: #ffaa00;
-    text-decoration: underline;
-  }
-  html, body {
-    margin: 0;
-    padding: 0;
-    background-color: #1a0b2e !important;
-    background-image: radial-gradient(rgba(255,255,255,0.05) 1px, transparent 1px);
-    background-size: 20px 20px;
-    color: #ffffff !important;
-    font-size: 1.2em;
-  }
+
   h1, h2, h3 {
-    font-size: 1.4em;
+    font-size: 1.3em;
   }
+
+  a { color: #ffcc00; }
+  a:hover { color: #ffaa00; text-decoration: underline; }
+  a:visited { color: #d4a017; }
 </style>
