@@ -1,0 +1,7 @@
+{
+  "buildCommand": "hugo --gc --minify",
+  "outputDirectory": "public",
+  "redirects": [
+    { "source": "/", "destination": "/blog", "permanent": true }
+  ]
+}

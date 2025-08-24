@@ -1,7 +1,7 @@
 baseURL = "https://john.lgbt"
 theme = "hugo-bearblog"
 
-title = "John's Creative Relationship Space"
+title = ""
 author = "masculine@john.lgbt"
 copyright = "CC BY-SA 4.0"
 languageCode = "en-US"
