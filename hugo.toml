@@ -19,7 +19,7 @@ ignoreErrors = ["error-disable-taxonomy"]
 [params]
   title = "JCRS"
   description = "Taking our environment by the steering wheeel. 💜"
-  favicon = "static/favicon.ico"
+  favicon = "favicon.ico"
   images = ["tricky-canon.jpg"]
   
   hideMadeWithLine = true
