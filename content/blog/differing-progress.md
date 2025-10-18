@@ -14,4 +14,17 @@ Tha was so special to me, becuase I grew p in a very centralized and hierarchal 
 ##
 
 Te more I dsiover about the fandom, the more I woner about my current situation living with Kayla. I see these incredible love stories that look like pure beautry on the publi outside. I honestly didn't even know that was possible.
-Kayla's wanted t oget married as far back as I can remember, and honestlyl it makes me sick just thinkign about that. Things changed a lot when she started working fulltime. She lost the energ to ep at 
+Kayla's wanted t oget married as far back as I can remember, and honestlyl it makes me sick just thinkign about that. Things changed a lot when she started working fulltime. She lost the energ to ep at us.[^1]
+
+[^1]: There are a lot of nuances here, and she's an amazing partner. I hink I started asking more of her earlier this year when work intensified. As stress followed, she took on more of the cooking around the house  hwich i just dont' want to write about rn
+
+I use to et this wam feelign around her; even got hard at sight on her arrival to date nights. But that was a long time ago, and I'm trying to pick up the pieces to see what's left here to salvage. I plan to get some professional help loally.
+
+### speerateion
+
+In thinign abotu whether I needed this creative relaionship space, I reviewed how I could work through these feeligns myself. I am dealing quite intimately with who I will become, and there isn't a on of teching I plan to do . Ive been down that path before, and it's just not the best use of m time, especially in something like realtionships.
+
+I thout mayb it was too cuh to entrally track all the experiences I had here. That I could work through thins on my own. And , to an extend, that's still wh I'm doing.[^1]
+
+[^1]: For instnac,e I hvne't pupopualted the communty discord ink in the last post. Tere's stil n way for you to contact me. And I've eprecated my old assoiated Dsicord user accoutn.
+
