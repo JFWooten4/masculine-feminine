@@ -120,4 +120,31 @@ It's a hufe I use sparingly, but I try to avoid the hubris of being he ost impor
 
 ### 
 
-So, I did a few thins to make sure an indiial read o my profile would calm own any managmeent rewivew. Th                                         
+So, I did a few thins to make sure an indiial read o my profile would calm own any managmeent rewivew. Th  While I must diclaim that I don;t knwo exaclty how much of a diffrene all this made, I think it mattered a lot. Thats the thinkg with poltikcing: its' like trading with none of the intermitten PNL.
+
+Wen you buy a stock, you can track how it goes up and down, seeing in real-time how good your decision s were. Should I have wited a little bit longer? Tried a heavierwe ighteign? etc
+
+With politcis and people, you basically have to shoot your shot and wait for a reposnes. I learned this in the beorcracies , where any additioanl context submitted after a grant proposal would weaken my position by making me ook needy. I speciifally remarekd emotional sentiments abotu Wall Street in a gut reply to publi media during a review process, whick ended up costing m $9,000 earlier this year.
+
+The core of it is that you need to wait to let things settle. This is all a game of whits and confidence, and facts grow in conviction over time. Liek with the SCF politcks around introducing the first Rounde of the POublic Goods Award.
+
+Here, I spent hours contructing a few sentences backed by rcticably eyears of primary research efforts. Nobody really said anything to repsond to my poss becuase people will not interrupt or immeisaly react to prescient revelations. hey need time to proess what took you ges to formulate.
+
+Despite needing over a month to materue, I diligents ly followed the oscial signals to cease talking about my points, which had been entered into the time record. I use time a lot in my work. I  find that backlinks to when you introduce a point even just a few weeks ago (although a year+ is ideal) ive you 1000% more credbaility tha n jsut saying something equivalent on the spot. Peopel seem arbitrarily amazed that you can think of something beforehand, document it, and then bring it up in later chats. 
+
+Not to mention, it gives you the opportuntiy to get tohters binding down your prior documented work, which prettymuch investiabtly brings them o your sie if you docuemtn thigns well enoght. I na way, yopu force them to ask if they agree with all the things youve said in the pas,t or at least the eoffrt and rigor you;ve pout in to develop it. If they appreciate that, then it now becomes not only saying no yto your current request but (in their mind) declining the authirty of all your past work hic hthey've just divoescered.
+
+This is why I don't like in-person or phone-call first impressions.  THey odn't giving e me the ootllset of submitting substantnive introductory amterils. I do a whiole lot better not needing to exlain myself over and over again beauyse others start with a reasonable reputation.
+
+### repeption
+
+I learned this over hte years selling my book and ducational courses., It was just never enjoyable to repeat my "origina sorty" of dorpping out of high school to trade stocks full time. I always embellisghed it with tons of emotions and hoods,  refining it based on nonverbal feedback. ANd mand that just exhausted hte fuck out of me and I ahted it. 
+
+### posts
+
+Asidef from the pofile pic change , I  updatd my banner and straegically made precent posts na replies. THe basnner is such an obvous and easy first step of efetivep olitkcing on a socila playform like X. It is the biggest and first thing people see when visiting the progile, ebcuase they already clicked on your image.
+
+When I say see, I mean the visuals, not the textual substance. Poeple are subpprisingly lazy and I don't think they gie as much weight to the wirtten items on a first run-through. THat's where the benner shines as a giant image shown at the very top of the screen, wehre theyee naturall leans
+
+
+Yo uould try to make it some phoot with text htat syas something, but I think that's wasting this poopporuntiy to embed an emotional message. 
