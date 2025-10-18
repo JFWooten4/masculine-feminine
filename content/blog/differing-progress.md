@@ -3,7 +3,7 @@ title: ""
 date: 2025-10-25
 ---
 
-# Strategies for Wall Street Wins & Kayla Contemplations
+# 🏆 Strategies for Wall Street Wins & Kayla Contemplations
 
 The first post was pretty much flawless, and that's definitely the dynamic I'm going for here. But it was so much effort that I really thought about abandoning this whole project. I have very specific needs in my life that I've learned over years of trial and error.
 
@@ -136,7 +136,7 @@ This is why I don't like in-person or phone-call first impressions. They don't g
 
 I learned this over the years selling my book and educational courses. It was just never enjoyable to repeat my "original story" of dropping out of high school to trade stocks full-time. I always embellished it with tons of emotions and hooks, refining it based on nonverbal feedback. And man, that just exhausted the fuck out of me and I hated it.
 
-### Content
+### Will Bring You to Your Knees
 
 Aside from the profile pic change, I updated my banner and strategically made recent posts and replies. The banner is such an obvious and easy first step of effective politicking on a social platform like X. It is the biggest and first thing people see when visiting the profile because they already clicked on your image.
 
