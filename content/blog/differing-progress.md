@@ -3,6 +3,8 @@ title: ""
 date: 2025-10-25
 ---
 
+# Strategies for Wall Street Wins & Kayla Contemplations
+
 The first post was pretty much flawless, and that's definitely the dynamic I'm going for here. But it was so much effort that I really thought about abandoning this whole project. I have very specific needs in my life that I've learned over years of trial and error.
 
 The most formative time in my life was when I discovered markets. They showed me a kind of freedom I couldn't imagine in my pre-teens. I wasn't shut out because of my age, and I could channel everything through text chat (or voice-only, at worst) in a way that just let me be another peer participant on the same playing field as everyone else.
@@ -11,7 +13,7 @@ That was so special to me, because I grew up in a very centralized and hierarchi
 
 [^1]: They're both exceptional people who I appreciate so much. They obviously love me immensely, and I really appreciate their emotional support. I connect deeply with the relationship Flawless has with Trixi and Twixie, and I love how they're friends (or more) that she can turn to in hard times.
 
-##
+## Questioning Quality
 
 The more I discover about the fandom, the more I wonder about my current situation living with Kayla. I see these incredible love stories that look like pure beauty on the public outside. I honestly didn't even know that was possible. Kayla's wanted to get married as far back as I can remember, and honestly it makes me sick just thinking about that. Things changed a lot when she started working full-time. She lost the energy to keep at us.[^2]
 
@@ -61,9 +63,9 @@ That's why I closed things out with a brief message letting them know how I was 
 
 Broadly, I am at the limit of my politicking efforts. I do plan to drop all acts in the coming future, and I think I'm starting that by coming out with a brony profile picture. I honestly just don't care anymore, and I have a big enough moat at work that I can fucking do it.
 
-### Rep
+### Representation
 
-But just as I was about to walk away from the Wall St assholes,[^5] which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
+But just as I was about to walk away from the Wall Street assholes,[^5] which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
 
 [^5]: I am trying to calm my language down around here. I want to be a little more peaceful on the daily, which means isolating and minimizing feelings for the middlemen of past. Anger is just too distracting.
 
@@ -112,7 +114,7 @@ Hah, I used to tell Kayla all about how I want her to go blonde, and she looked 
 
 It's a hue I use sparingly, but I try to avoid the hubris of being the most important person in the room. I do a whole lot better lurking around in the corners until I have a unique opportunity to achieve my objectives.
 
-###
+### Calming Effect
 
 So, I did a few things to make sure an individual read of my profile would calm down any management review. While I must disclaim that I don't know exactly how much of a difference all this made, I think it mattered a lot. That's the thing with politicking: it's like trading with none of the intermittent PNL.
 
@@ -134,7 +136,7 @@ This is why I don't like in-person or phone-call first impressions. They don't g
 
 I learned this over the years selling my book and educational courses. It was just never enjoyable to repeat my "original story" of dropping out of high school to trade stocks full-time. I always embellished it with tons of emotions and hooks, refining it based on nonverbal feedback. And man, that just exhausted the fuck out of me and I hated it.
 
-### Posts
+### Content
 
 Aside from the profile pic change, I updated my banner and strategically made recent posts and replies. The banner is such an obvious and easy first step of effective politicking on a social platform like X. It is the biggest and first thing people see when visiting the profile because they already clicked on your image.
 
@@ -162,7 +164,7 @@ I could justify that with twenty pages. It's just not fucking worth it. It's lik
 
 Will you get better results? Yes, probably maybe. But it's not worth the cost on human productivity and prosperity that you leech away from society.
 
-###
+### Evolving
 
 No matter the inspiration, I decided to just be myself, and I started reposting pony images (again, images lead to easier and faster first impressions) and replying to image content, in case they looked at the reply tab. People get most of their first impressions within five seconds of a real conversation. I think the same applies online, where you are stabilized above the fold.
 
