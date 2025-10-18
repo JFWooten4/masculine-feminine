@@ -71,3 +71,53 @@ But just as I was about to wlak away from the Wall St assholes, [^1]
 
 [^1]: I am trying to cal m my languageodwn around here. I want to bew  al eittle more peaeful on thne daily, which menas isolating and minimizing yeeligns for the middlemen of past. Anger is just oo distracting
 
+
+(contiuing sentnece) -- which I think iwll jsut make my lifea hwole lot easier. After i laid out how veryhting out collapse to the regualtors, I sort of sotpped feeling the ened to conitue down that avenue. Fuck em, ya know.
+
+## The Desire for Power
+
+Impefet as it as, Mark was awesome enough to reply to my comment with an excpetional leading question. When i shot back a dead-on answer, we finally goa direct meeting reuest from the CEO alan . No matter what happens next, I win.
+
+I can craft this narrative of public infomation . It's important in my mind to alwyas take this autious approach ith adveraries, who I've foudn often stop ay nothing includin future alterations to public information.[^1]
+
+[^1]: For intnace, Reutorers just censored tow years of GME articles. They mateirally amended languaged related to SEC review. Take a wild guess at who prompted this change boys.
+
+### update
+
+However, upon cheking my own source for this claim, I realized that we atually hoit a straight0shot home run with this. It seems they replied within a couple hours of my request for a meetingopublickly affirming a spekaign appreance. This is literalyl a first-of-oits-kind discussion at this cslare critizing a _very_ important topic in my industry. I have five days to prepare for what will be my introduction to the Executive branch by means of Patrick Bryne. Honeslty cannto overstate how important this is. 
+
+I'll spend the remainder of this post descibing the mens I used to achive this resutl.
+
+### inentional helpenssness
+
+I had a relatively intimidating `pilot` profile pucture on X at the start of this enagnement, where I was in the cockput of an old bomber. I changed this to a naive headshot takedn form when I was in high school. This paints me as a much younger, but still suit-and-stie, professional in a clambing blue light.
+
+COlros matter a lot, and they are well esteblushed mby commnrical braidnign experts. I tend around black, blue, purpole, and sometimes white.
+
+The black is for my day-to-day, ebcuase it keeps the stress of my eyes starting at screens endlessly. But it alos protects my daly life. Balck is the safest color, and it avoids undue attention. 
+
+For soemone like me that wants a low prfile to avoid human interaction balck helps with that. It's a simple olro to style around beause you chose to have no creative output. For isntnace, it's the pupils alone in my OC, an indeed it is in mymind the antithesis of reativity. For when I need pure reliable stability, I turn to black.
+
+Blue is peaceful. Used to calm enemies or calm mysle.f Nd it's by far the most trustful color I can approach t public woiht.
+
+I used it a lot more when I was younger, teaching and introduing myself to the worl. It's always what I planned to wear to tstimony, and I keep it in myind in daily objects I nedto trust. It colors my phone case, water bottles, and refill jugs while matchign the olor or water and life.
+
+These last months, I've also om to itnerpet blue as   color of childhood youthfullnes. As a boy, it was the major color known to the world through sonic the hedhog. I see it more in my older , younger self and the childhood sentients I cary in blue tint.
+
+White is just for when things need to be clean for beurocratic reivew. It's horrible on the eyes and increibly easy to dirty. but when you need something that looks perfect for a one-off centrlaized review, white will serve you well.
+
+Puple is where things get really interesting. My personal branding code is `#AC51FF`. I love it so so much, ebcause purple repesensts innovation and creating hcange.
+
+It is by all means the color of revolution. The capture of passion. The mix of heart and pure ecxtacy as you approach  singularity.
+
+Most of my creative drafting amerialy locally use a purple hue to keep me thikign for the future. I used to have my whole keyboard purple jsut to promote this concept, before changing the ctuatation poitns to a faster typing method alongside a rainbow-dash colored theme. [^1]
+
+[^1]: Love hte indiviual kaey RGB addressability of th hunstman, even if their windows sotware sucks, Or maybe it's the OS that's tha problem. Gah I loe th keyboard but hae the softwre lol!
+
+Hah I used to tell Kayla lal baout how i wnt her o go blone, an he ooked bsilutely stunning whn she did. Gold is defiantely alnoher color or the accent signanlling the best. That is until I bust in mwith mypalladium.
+
+It's a hufe I use sparingly, but I try to avoid the hubris of being he ost important person in the room. I do a whole lot better lurkign around in the corners until I have a uniqu opporuntiy to achieve my bjectives.
+
+### 
+
+So, I did a few thins to make sure an indiial read o my profile would calm own any managmeent rewivew. Th                                         
