@@ -63,11 +63,11 @@ Broadly, I am at the limit of my politicking efforts. I do plan to drop all acts
 
 ### Rep
 
-But just as I was about to walk away from the Wall St assholes, [^1]
+But just as I was about to walk away from the Wall St assholes, [^1] which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
 
 [^1]: I am trying to calm my language down around here. I want to be a little more peaceful on the daily, which means isolating and minimizing feelings for the middlemen of past. Anger is just too distracting.
 
-(Continuing sentence) -- which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
+
 
 ## The Desire for Power
 
