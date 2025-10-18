@@ -148,3 +148,35 @@ When I say see, I mean the visuals, not the textual substance. Poeple are subppr
 
 
 Yo uould try to make it some phoot with text htat syas something, but I think that's wasting this poopporuntiy to embed an emotional message. 
+
+WSo it set it as this cute blue uwu drawing of Dash. It's just so perfect for the message I'm trying to convey. Someone with wonderbolt-level speed hidingbehind a mast k of voluntary deprecation.
+
+Using yourself as a decieivningly unbale form works really well. Lsat year, during the heat of AMM drama, I extracted a confessio nfrom highlevel communtiy memebrs that AUA was centralized by naively (to them) asking my oppotnnet's argumetns of decentralization in question form. I literally took their rediculous claims, asked them like i was a tootal n00b idiot, and watched my deepest rivals make my entire argumetn for me.
+
+It was beurtical, and thats what i love abotu lilkitics. When you get these trads right, they are just as magical as a 10X call. Albeit htey kae a lot longer to show up in you bank acount.
+### postst
+
+THis was during my transition to the brony fandom, which I will admit was probably influeced by this event. During the SEC reive wperiod, I have aserioues of commits nad PRs epxlitliy dmaning this strategy or hte sake of looking foressionally acceptable. For isntnace, I set my pfp to Flawless and chad Soarin (gay) on X and GithUB during the review, which I knw would be the polaces staff visitned while while eplring my osurce links.
+
+I learned to consider surrounding sources when I was applying for bank accounts to access fiat trasnfers. The Syndicate had it' old `.io` site where I could change things super quick and track a little more about visitors' actions. The paprooach mirors the BTCS CEO story about how they used tracking they built to see how 90% of their website trafic ame from the SEC, watching exactly which pages they examined for securities copliance.
+
+I found that hoilarious, and for clarity I do not do or [pa to do that. But like, it 's totally true. You have to get own to the level of IP tracing to or other gimmiky hacks to treally track political progress.
+
+I don't think it's workth goin that far. It's a slipperly slope from there down to Snowden-levle constant suevaliance. At htat point, it's a full-tiem job which requires authority and leads to dicttorship totalitaltinaism.
+
+I could jsutorf that with twenty pages. It's jsut not fucking worht it. It's like furnning an invesmtent commitee surrounded by huge beurocracies.
+
+Wil lyou get better results? Yes, prbably maybe. But it's not worth the ost on human prouctivity and prospecrtiy that you leeach away from society.
+
+###
+
+N oamtter the inspiration, I ecided to jsut be myslf, and I started reposting pony images (again , images lead to easier and faster first impressions)] and rpelying to image content, in acsae they looked at hte reply tab. People get most of their first impressions within 5 seconds of a real conversastion. I think the same aplieds online, where you are steablied above the fold.
+
+
+The fold is a digital marketing terms which jsut means what you cna see when you first load a page. On mobile, this is a much smaller amount of space that makes the job a little easier, asumign you know how to ismplyigfy your semessage well. IN nthis cas,e it would be the headshot, banner, and pinned post.
+
+I made sure to poin an only brony content  Ihad , epxlaining a headhot I used for my pfp during the Review period.  I was foruntae to have that, because i think a more recent pin wouldve prmpted further investigation into my anti-Wall Street post history.
+
+Fuck, I even posted an anti-Goldman Scachs meme like a few days ago, which should haveb een an AOBVIOUS turn off for this CEO guy . I didn't think we'd get it when I sent ti out. But it's clear from his reactions (at least to me) that he never even checked back on my prfile updates when accepting hte meeting beause my intro was so trong.
+
+Anwya, the Fold on desktop, which I rpesume preofessional like him use, if as few posts. I made the retweets or posts with pbrony content spaced alogn a few days so that it didn't look like i was rushign to fill up my timeline with 
