@@ -1,9 +1,7 @@
 ---
-title: ""
+title: "🏆 Sharpening Wall Street Wins"
 date: 2025-10-25
 ---
-
-# 🏆 Strategies for Wall Street Wins & Kayla Contemplations
 
 The first post was pretty much flawless, and that's definitely the dynamic I'm going for here. But it was so much effort that I really thought about abandoning this whole project. I have very specific needs in my life that I've learned over years of trial and error.
 
