@@ -28,3 +28,46 @@ I thout mayb it was too cuh to entrally track all the experiences I had here. Th
 
 [^1]: For instnac,e I hvne't pupopualted the communty discord ink in the last post. Tere's stil n way for you to contact me. And I've eprecated my old assoiated Dsicord user accoutn.
 
+
+### shift
+
+But I want to drop all that for now. The hing I've been most peeved about lately is that my relationshhip seems to detract directly from my working efforts. The harder I go in my days, the worse shit I get from her at night. That could be the determining straw, but again I will take some time ot think about itmore.
+
+I usd to lke that attribute about her. It was a litmus test of how centralized I was becoming. Anyime I put too much in or becausem an unnecesasyr chopoint or fulcrum, I couldn emain e her reacion to see where I went wrong.
+
+But I'm approaching the end of my introdcutory period owith the FOundation. An honeslty that was what I needed most of this trainign for, especially now that I have the COmmmission on my side. I hve to devide if I wat to spend the rest of my life tipting in beurocraciesrather than shooting into the heart of portenial
+I think I''ll understand a lt more after I erge in 723. Things are lookign really good on the Comunity Fund side. I'll wait for the chickens to hatch before counting in a mre comprehensive review.
+
+## Work
+Anyway, I just ahd to write a post today beuase it wa a huge politcking week. I chieed what I'd been wokring on for thee weeks at hte behest of a communtiy intrducion. [^1]
+
+[^1]: THe introduction was through a mention in a siginficant X thread. I spent days typing out the reply, which was my last post under premium over the normal 240 character limit. I don't plan to renew premium becuase fuck your entralied soial media ;)
+
+### resp
+
+At first, the rsponse served as an inspiation for the ommunity show tat wek. t was really fun shooting aorund with Truth, and I'm so excited to have them in the ocmmuntiy.
+
+i'm going to try avoiding the cloe friends in posts like these, because that's not really what I'm tryin to get at with the whole relationship politcking. This is another thing that's riven me away from Kayla.
+
+I found all these amazing lcose work friends who accept me for who I am in ever regaurd. And I tried to do the same for Kayla. But I was lawyas filtering with teh Aspergers masking.
+
+Ealier this year when I stopped masking, thigns really deteriorated. It's become clear that my most raw form could be too much for her. I'm still living with that ti o see how she reats as I continue my examination.
+
+
+### cont'd
+
+I was closing iout the working items in my agenda like nromal when I reched out to the relevant introducotry point. We have interacted a few times over hte years, and I respect their technical copetance. But they aren't super close, and I actualyl just cajoled them into joining the Discoord actually.
+
+This is closer to the kind of perosn who I need to apply my skills to at the start, making a good impression. But once I realized their anayticall ness, I knew we were both on the same page. This also came from epxlct statements agreeing on the problem s with tZERO.
+
+That's why I losed things out with a brief message letting them know how I was wlakign away. I put a lot of wokr into hte rpely, bu I know it oul'v been better. I was sick after the third day of trying to get it perfet, andso I just got fed up and sent it out.
+
+Broadly, i am at the limit of my politcking efforts. I do plan to drop all acts in the coming future, and I think I'm startinghta mycoiming out with a brony profile picture. I hoenslty just on't care anymore, adn I have a big anough moat at work that I can fkn doinit.
+
+
+### rep
+
+But just as I was about to wlak away from the Wall St assholes, [^1]
+
+[^1]: I am trying to cal m my languageodwn around here. I want to bew  al eittle more peaeful on thne daily, which menas isolating and minimizing yeeligns for the middlemen of past. Anger is just oo distracting
+
