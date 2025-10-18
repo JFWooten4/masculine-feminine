@@ -7,13 +7,13 @@ The first post was pretty much flawless, and that's definitely the dynamic I'm g
 
 The most formative time in my life was when I discovered markets. They showed me a kind of freedom I couldn't imagine in my pre-teens. I wasn't shut out because of my age, and I could channel everything through text chat (or voice-only, at worst) in a way that just let me be another peer participant on the same playing field as everyone else.
 
-That was so special to me, because I grew up in a very centralized and hierarchical household. My dad made a million dollars in 2008, working at one of the bailed-out banks. To say things were on a tight lock is an understatement, and it was evident in the strictness within my parents' relationship. They only made it a couple more years after that, divorcing around the time that I discovered the TF2 hat bazaars. [^1]
+That was so special to me, because I grew up in a very centralized and hierarchical household. My dad made a million dollars in 2008, working at one of the bailed-out banks. To say things were on a tight lock is an understatement, and it was evident in the strictness within my parents' relationship. They only made it a couple more years after that, divorcing around the time that I discovered the TF2 hat bazaars.[^1]
 
 [^1]: They're both exceptional people who I appreciate so much. They obviously love me immensely, and I really appreciate their emotional support. I connect deeply with the relationship Flawless has with Trixi and Twixie, and I love how they're friends (or more) that she can turn to in hard times.
 
 ##
 
-The more I discover about the fandom, the more I wonder about my current situation living with Kayla. I see these incredible love stories that look like pure beauty on the public outside. I honestly didn't even know that was possible. Kayla's wanted to get married as far back as I can remember, and honestly it makes me sick just thinking about that. Things changed a lot when she started working full-time. She lost the energy to keep at us. [^2]
+The more I discover about the fandom, the more I wonder about my current situation living with Kayla. I see these incredible love stories that look like pure beauty on the public outside. I honestly didn't even know that was possible. Kayla's wanted to get married as far back as I can remember, and honestly it makes me sick just thinking about that. Things changed a lot when she started working full-time. She lost the energy to keep at us.[^2]
 
 [^2]: There are a lot of nuances here, and she's an amazing partner. I think I started asking more of her earlier this year when work intensified. As stress followed, she took on more of the cooking around the house which I just don't want to write about right now.
 
@@ -23,7 +23,7 @@ I used to get this warm feeling around her; even got hard at sight on her arriva
 
 In thinking about whether I needed this creative relationship space, I reviewed how I could work through these feelings myself. I am dealing quite intimately with who I will become, and there isn't a ton of teaching I plan to do. I've been down that path before, and it's just not the best use of my time, especially in something like relationships.
 
-I thought maybe it was too much to centrally track all the experiences I had here. That I could work through things on my own. And, to an extent, that's still what I'm doing. [^3]
+I thought maybe it was too much to centrally track all the experiences I had here. That I could work through things on my own. And, to an extent, that's still what I'm doing.[^3]
 
 [^3]: For instance, I haven't populated the community Discord link in the last post. There's still no way for you to contact me. And I've deprecated my old associated Discord user account.
 
@@ -37,7 +37,7 @@ But I'm approaching the end of my introductory period with the Foundation. And h
 
 ## Work
 
-Anyway, I just had to write a post today because it was a huge politicking week. I achieved what I'd been working on for three weeks at the behest of a community introduction. [^4]
+Anyway, I just had to write a post today because it was a huge politicking week. I achieved what I'd been working on for three weeks at the behest of a community introduction.[^4]
 
 [^4]: The introduction was through a mention in a significant fxtwitter.com thread. I spent days typing out the reply, which was my last post under premium over the normal 240-character limit. I don't plan to renew premium because fuck your centralized social media ;)
 
@@ -63,7 +63,7 @@ Broadly, I am at the limit of my politicking efforts. I do plan to drop all acts
 
 ### Rep
 
-But just as I was about to walk away from the Wall St assholes, [^5] which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
+But just as I was about to walk away from the Wall St assholes,[^5] which I think will just make my life a whole lot easier. After I laid out how everything would collapse to the regulators, I sort of stopped feeling the need to continue down that avenue. Fuck them, you know.
 
 [^5]: I am trying to calm my language down around here. I want to be a little more peaceful on the daily, which means isolating and minimizing feelings for the middlemen of past. Anger is just too distracting.
 
@@ -71,7 +71,7 @@ But just as I was about to walk away from the Wall St assholes, [^5] which I thi
 
 Imperfect as it was, Mark was awesome enough to reply to my comment with an exceptional leading question. When I shot back a dead-on answer, we finally got a direct meeting request from the CEO Alan. No matter what happens next, I win.
 
-I can craft this narrative of public information. It's important in my mind to always take this cautious approach with adversaries, who I've found often stop at nothing including future alterations to public information. [^6]
+I can craft this narrative of public information. It's important in my mind to always take this cautious approach with adversaries, who I've found often stop at nothing including future alterations to public information.[^6]
 
 [^6]: For instance, Reuters just censored two years of GME articles. They materially amended language related to SEC review. Take a wild guess at who prompted this change, boys.
 
@@ -103,6 +103,6 @@ Purple is where things get really interesting. My personal branding code is `#AC
 
 It is by all means the color of revolution. The capture of passion. The mix of heart and pure ecstasy as you approach singularity.
 
-Most of my creative drafting material locally uses a purple hue to keep me thinking for the future. I used to have my whole keyboard purple just to promote this concept, before changing the punctuation points to a faster typing method alongside a rainbow-dash-colored theme. [^7]
+Most of my creative drafting material locally uses a purple hue to keep me thinking for the future. I used to have my whole keyboard purple just to promote this concept, before changing the punctuation points to a faster typing method alongside a rainbow-dash-colored theme.[^7]
 
 [^7]: Love the individual key RGB addressability of the Huntsman, even if their Windows software sucks. Or maybe it's the OS that's the problem. Gah I love the keyboard but hate the software lol!
