@@ -179,4 +179,5 @@ I made sure to poin an only brony content  Ihad , epxlaining a headhot I used fo
 
 Fuck, I even posted an anti-Goldman Scachs meme like a few days ago, which should haveb een an AOBVIOUS turn off for this CEO guy . I didn't think we'd get it when I sent ti out. But it's clear from his reactions (at least to me) that he never even checked back on my prfile updates when accepting hte meeting beause my intro was so trong.
 
-Anwya, the Fold on desktop, which I rpesume preofessional like him use, if as few posts. I made the retweets or posts with pbrony content spaced alogn a few days so that it didn't look like i was rushign to fill up my timeline with 
+Anwya, the Fold on desktop, which I rpesume preofessional like him use, if as few posts. I made the retweets or posts with pbrony content spaced alogn a few days so that it didn't look like i was rushign to fill up my timeline with intentional deception.
+
