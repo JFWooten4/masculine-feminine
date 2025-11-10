@@ -6,7 +6,13 @@ hiddden: true
 
 FOr a very long time, I've erxccluisively done what was politically expediatn. I spent huge portions of my life crafting and maintaining honest narratives so that others had the easiest possible time coming  to my ends. FOr j usit about fiver  years now,  I've placed much of that central atenion on my Fiance Kayla, which has been exchausting.
 
-This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1]
+This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1] 
+
+<blockquote class="twitter-tweet">
+    <p lang="en" dir="ltr">https://x.com/JFWooten4/status/1980748352644849773</p>
+    &mdash; JFWooten4
+</blockquote>
+<script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 
 
