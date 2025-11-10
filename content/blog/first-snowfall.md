@@ -1,6 +1,6 @@
 ---
 title: "🏔 Avalanche of Partner Realizations"
-date: 2025-11-19
+date: 2025-11-10
 ---
 
 FOr a very long time, I've erxccluisively done what was politically expediatn. I spent huge portions of my life crafting and maintaining honest narratives so that others had the easiest possible time coming  to my ends. FOr j usit about fiver  years now,  I've placed much of that central atenion on my Fiance Kayla, which has been exchausting.
