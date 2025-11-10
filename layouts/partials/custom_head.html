@@ -9,20 +9,29 @@
     color: #ffffff;
     font-size: 1.2em;
     position: relative;
+    min-height: 100vh;
   }
 
   body::after {
     content: "";
     position: fixed;
     inset: 0;
-    background: rgba(0, 0, 0, 0.65);
+    background: rgba(0, 0, 0, 0.64);
     pointer-events: none;
-    z-index: 1;
+    z-index: 0;
   }
 
   header {
     position: relative;
     z-index: 2;
+    background-color: #ac51ff;
+    padding: 20px 0;
+  }
+
+  main,
+  footer {
+    position: relative;
+    z-index: 1;
   }
 
   h1, h2, h3 {

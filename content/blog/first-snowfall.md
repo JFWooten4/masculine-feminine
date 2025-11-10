@@ -8,7 +8,8 @@ FOr a very long time, I've erxccluisively done what was politically expediatn. I
 This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1] Vylet's really helped me process unheard emotions over the years, showing me that it's okay to lkiive outsidde  the norms imposed by entranched political mantras.
 
 <blockquote class="x">
-    <a href="https://x.com/JFWooten4/status/1980748352644849773">View on X</a>
+    <p lang="en" dir="ltr">Welcome to my TED Talk<br>They never wanted to give me it<br>img <a href="https://x.com/VyletPony?ref_src=twsrc%5Etfw">@vyletpony</a> rip ur private no-tags<br>Time to walk away from em all one last time <a href="https://t.co/bkSCUbvZAo">pic.twitter.com/bkSCUbvZAo</a></p>
+    &mdash; john.xlm 🔜 PVCF (@JFWooten4) <a href="https://x.com/JFWooten4/status/1980748352644849773?ref_src=twsrc%5Etfw">October 21, 2025</a>
 </blockquote>
 
 <blockquote class="twitter-tweet" data-dnt="true" data-theme="light"><p lang="en" dir="ltr">Welcome to my TED Talk<br>They never wanted to give me it<br>img <a href="https://twitter.com/VyletPony?ref_src=twsrc%5Etfw">@vyletpony</a> rip ur private no-tags<br>Time to walk away from em all one last time <a href="https://t.co/bkSCUbvZAo">pic.twitter.com/bkSCUbvZAo</a></p>&mdash; john.xlm 🔜 PVCF (@JFWooten4) <a href="https://twitter.com/JFWooten4/status/1980748352644849773?ref_src=twsrc%5Etfw">October 21, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
