@@ -7,9 +7,7 @@ FOr a very long time, I've erxccluisively done what was politically expediatn. I
 
 This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1] Vylet's really helped me process unheard emotions over the years, showing me that it's okay to lkiive outsidde  the norms imposed by entranched political mantras.
 
-<blockquote class="x">
-    https://x.com/JFWooten4/status/1980748352644849773
-</blockquote>
+<div x-post="https://x.com/JFWooten4/status/1980748352644849773"></div>
 
 
 
