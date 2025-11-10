@@ -28,9 +28,18 @@ I listened  to a lot , and it really helped cement personality trraits I've had 
 NOtwistanding relatively few fandom friends, the art through music (and  to a letsser extent drawings) become commonplace in the worlds I epxlored,  so  it was like I always had a support network.[^7] EUntprenruship is exceptionalyl lonely, even now, so I can'tr express how important that was to me. And the quality of new pony music is really jawdropping, plus it  just  keeps on  coming out!
 
 
+### Capital  ALlocation  and Animations
 
+DUring this time, I also dicoered [Tamers](https://x.com/TheTamers12345)  and LFØ's [Flower](https://youtu.be/DkUEHMfQw-I).  SDurely it's been discussed before, but I wanted to link for clarity of discovery. There's a p[part of me that wants to run away  from all the perfected polpitcking and presernt my innormost quirks to the world through my work, and I believe this transprency helps start that  vulenrabiilty.
 
+In both  aases, a single person created unbelievable art , one with MS Paint 
+and t he other basded on a decade of intern epxerience at studios like Dreamworks. They're both incredible exmaples of this growing trend these land years for poeple to just make whatever they wnat without asking studios for mpermission, which led to excpetional hits like the Glitch and Vivziepop.[^8] These and so many opthers showed me what people can do when they stick  to their goals, which really refheshed my  personal beliefg in human engienuits and ethe efficncy of markets to alter reward.
 
+Again,  most o f this discover came during the stressful SEC period where Kayula  crucially  stoppepd both accting cutely (discussed) and actualyl ahving compelte fdaith in me. A little letter seh wrote expressed  how her faith was wavering, a belief I used from the first year of Block Transfer as gfas fueling my brain's engine. For so many years I was codependent on her hope in my  success, so I needed to replace it quickly with soemthign self-dustainable—which came through these realizations.
+
+###  Trading and Life Path
+
+Before my next reflections this month, I'll be the rfirst to admit I could've been better to her in many ways, but I promise that I did sincerely give it everythign I had after pouring into work for so long. IO've found that there's a point where you can tenmporariyl force thigns into bplace, but it's not sustainable or particualrly healthy .[^9] That  siad, 
 
 -  trading view
 -  
@@ -80,3 +89,7 @@ basically settled for  girl with no (foundig) missions / goals
  honestly." I Think this i s the first itme in a long time that I've been so close with myh emotions, ppushign me towrads radical openess about my inner thoughts. All my work freflects the dfevleoping personality within me, as shown for instnace by my making this pository public  while drafting.
 
 [^7]: I have gotten more into enjoying drawings latley as I needed quick pick-me-ups from immensely cute and femneine feed images. In the thick  of things, I used the music becuase it kept me going hwen I needed to write into the night  to meet staff deadlines.  
+
+[^8]: While both of those are much more centralized, it's been simialrly excited watching them grow form nothing. ANd ofc  they asked Gabriel to be ALastor's singing voice before the  corp;orate takeover, exmeplifying the teamwork-first approach, which you lose in the conglomerate. I cna only imagine and want deeply to help faciliatetg a future where they receive direct financial response from free audience tipping
+
+[^9]: I really  saw this in high-scchool science, where I had to put in much more effort than nromal to excel ion tests asnd eventualyl the AP Exam. Despiute the teacher gifting me a prep book which I duily studied, I got one mark lower than needed  to avoid studying all the same materials agian in college/. After getting detention for trading stocks in calss, I releized that some thigns werent weorth the efoort
