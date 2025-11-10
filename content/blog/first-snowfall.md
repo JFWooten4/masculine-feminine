@@ -1,12 +1,11 @@
 ---
 title: ""
 date: 2025-11-19
-hiddden: true
 ---
 
 FOr a very long time, I've erxccluisively done what was politically expediatn. I spent huge portions of my life crafting and maintaining honest narratives so that others had the easiest possible time coming  to my ends. FOr j usit about fiver  years now,  I've placed much of that central atenion on my Fiance Kayla, which has been exchausting.
 
-This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1] 
+This post   omes after two  of  my normal free-markets macros, and I've been thiknking about it for years in physcial journals. A moment of inspiration came when I made this X post.[^1] Vylet's really helped me process unheard emotions over the years, showing me that it's okay to lkiive outsidde  the norms imposed by entranched political mantras.
 
 <blockquote class="twitter-tweet">
     <p lang="en" dir="ltr">https://x.com/JFWooten4/status/1980748352644849773</p>
