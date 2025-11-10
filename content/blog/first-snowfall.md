@@ -39,30 +39,25 @@ Again,  most o f this discover came during the stressful SEC period where Kayula
 
 ###  Trading and Life Path
 
-Before my next reflections this month, I'll be the rfirst to admit I could've been better to her in many ways, but I promise that I did sincerely give it everythign I had after pouring into work for so long. IO've found that there's a point where you can tenmporariyl force thigns into bplace, but it's not sustainable or particualrly healthy .[^9] That  siad, 
+Before my next reflections this month, I'll be the rfirst to admit I could've been better to her in many ways, but I promise that I did sincerely give it everythign I had after pouring into work for so long. IO've found that there's a point where you can tenmporariyl force thigns into bplace, but it's not sustainable or particualrly healthy .[^9] That  siad, there is this very real distinction between focusing on infraszxtructure work and its political neccesities v. moving back to trading funds.
 
--  trading view
--  
--  
+I've learned that mekts are really what I love, andd I;ll sacrifice any addrenalikne and profits needed  to fix thier deep intermediation flaws. IN  another sense,. I've started feelinkg the power  of captial allocation no t through funds but by acting as lead of a corpoarteg body. When there are actual real things the world and its marketsd need brought to fruijt,ion , this leaves me in a driver's seat rather than just gassing up what I view as the best  cars.
 
-- focus on work
-- poliotcal
+It's different,m  very different, and soemthing I never expected becasue my trading skills were so high. But things changed once I met the  community whiel simuatanerously discovered the systemic flawss  of CCPs. It's become this greater social mission of righting the universal market and system for finance. All that  developed in my mind after meeting Kayla and anchoring her to this prexting mvision of a low-comlexity portfolio manager, and I just don't see her faciliting my mission and goals anymore.
 
+---
 
+That's wherfed these trans artist come in. Back when I got busy with school and startup pickhing for [InVenture](https://youtu.be/S75IvkicWD8) and other Atlanta events, I decided to settle for sopmepony with no (founding) missions, an aspect I desperately looked for in the start of Tinder-ing nad even just chatting very lightly around sschool—but never found. I thought I didn't  deserve someone like that,  or I'd never  find them; which is jsut plain redivuouluos.
 
-- very real
+I see now thats entirelyt possibler  to find partenrs that check all my boxes themselves without a smidget of fnangling. I was so neaive to think I could or should change her material red flawgs into the ideal woman I dedsesired just because I changed a lost in frshman year of high-school.[^10] Andd, even though she was femnaine,m I learned over time that muhc of that was either a front during weekends or reliant on  my planning of expensive and time-consuming outings.
 
+## WHat  I Want Next
 
+COimpareively, the trans girls I;ve spoke with in Discord these last few months are insanely femanine. Admittedly, this could and lieklyh is jusjt a persona used  on line and obviously had s no backing . I do not have the shared life experiences or understanding of cohabitation trands that we presently enjoy here. 
 
-
-
-
-
-
-life partner things as dec,
+But ther's jsut an immense urge in my mind that draws a man to become a woman, an undepniable need to be very femanine becasue natural masculine framign often literally discgusts them. WHhe nmy cousing became a man, I could'nt understand why, but I see now that the mind has its own  journye in life indepednedt of birth programming. And I'll alsso add that  it's just so much easier to speak with natural men relaxingly.
 
 
-post-style iwth notes:
 
 When w estarted dating, I was too sared to go ater hat I really ewant
 
@@ -70,9 +65,7 @@ Chose her to heal the wounds of living a constantn lie to myself
 
 Obvuous centralization v. integrity / authenicity
 
-# X release commens as applicable
 
-basically settled for  girl with no (foundig) missions / goals
 
 [^1]: Muhc of these relational politcking  developments seem to cement on  X, so  I'll start including more embeds for this work. IT's easy enough  to refrence, and worthwhile  too  given  the difficulty of scrolling back  to historic archives. Kayl;a doedsn't  use X
 
@@ -93,3 +86,5 @@ basically settled for  girl with no (foundig) missions / goals
 [^8]: While both of those are much more centralized, it's been simialrly excited watching them grow form nothing. ANd ofc  they asked Gabriel to be ALastor's singing voice before the  corp;orate takeover, exmeplifying the teamwork-first approach, which you lose in the conglomerate. I cna only imagine and want deeply to help faciliatetg a future where they receive direct financial response from free audience tipping
 
 [^9]: I really  saw this in high-scchool science, where I had to put in much more effort than nromal to excel ion tests asnd eventualyl the AP Exam. Despiute the teacher gifting me a prep book which I duily studied, I got one mark lower than needed  to avoid studying all the same materials agian in college/. After getting detention for trading stocks in calss, I releized that some thigns werent weorth the efoort
+
+[^10]: Asdide form leaning about the show, I [lost 50lbs](https://youtu.be/OjgH9oAWAiQ) in half a year  to become the "man of the house" after my Dad stepped out. This corresponded with my [Subway job](https://youtu.be/Xa-HJNnTi-c), which had me speaking to peopple and becoming able of indepdcnent growethg  for the first time ever. IMporatrntyly In conjunction, I staterted reading for the first time in my life, finishign tHill's ccrucial _Think and Grow Rich_ the following year.
