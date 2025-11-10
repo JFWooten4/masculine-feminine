@@ -35,7 +35,11 @@
         var container = document.createElement('div');
         container.className = 'x-embed';
         block.parentNode.replaceChild(container, block);
-        twttr.widgets.createTweet(tweetId, container, { align: 'center' });
+        twttr.widgets.createTweet(tweetId, container, {
+          align: 'center',
+          theme: 'dark',
+          dnt: true
+        });
       });
     }
 
