@@ -49,7 +49,7 @@ Tell me with a straight face that doesn’t sound exactly like the typical gende
 
 These hardly-documented truths about relationships between all afflict everyone. Anybody can choose to act as the master of these forces, or you can submit to the guidance of others. I know which side of the spectrum I’m on.
 
-How have you approached your life so far: rolling with the punches or building the arena? Have you planned for the life you desire, or will you submit to the line of followers serving others’ ambition? Will you jump with me into a [considerate conversation](DISCORD_LINK) with friendship as a tenet?
+How have you approached your life so far: rolling with the punches or building the arena? Have you planned for the life you desire, or will you submit to the line of followers serving others’ ambition? Will you jump with me into a [considerate conversation](https://discord.com/users/1373651434972905472) with friendship as a tenet?
 
 
 [^a]: I don’t want this blog to interweave with my professional life. I have some feelings I need to get out, and this is the only way I know how. I’m not diving into that segment of my life because I need complete creative freedom to express a deep inner carve-out suffocating. In silence the world makes sense, I can feel the truth around me, and everything flows so magically.
