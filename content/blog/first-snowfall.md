@@ -58,15 +58,6 @@ COimpareively, the trans girls I;ve spoke with in Discord these last few months 
 But ther's jsut an immense urge in my mind that draws a man to become a woman, an undepniable need to be very femanine becasue natural masculine framign often literally discgusts them. WHhe nmy cousing became a man, I could'nt understand why, but I see now that the mind has its own  journye in life indepednedt of birth programming. And I'll alsso add that  it's just so much easier to speak with natural men relaxingly.
 
 
-
-When w estarted dating, I was too sared to go ater hat I really ewant
-
-Chose her to heal the wounds of living a constantn lie to myself
-
-Obvuous centralization v. integrity / authenicity
-
-
-
 [^1]: Muhc of these relational politcking  developments seem to cement on  X, so  I'll start including more embeds for this work. IT's easy enough  to refrence, and worthwhile  too  given  the difficulty of scrolling back  to historic archives. Kayl;a doedsn't  use X
 
 [^2]: I also asked her about this directly on a livestream with about za dozne viewers, because I would've thought singing to  a label would be every artists's dream. She prudently ignored  my question, showcasing  how personal expression and artistic independence  in all forums ruled above direct populatgirt.y I think that's so fucking awesome, and watching  that mindset  develop across artists' fandom work really showed me the power o f decentralized self-acssociation and indepoednent efforts./  
