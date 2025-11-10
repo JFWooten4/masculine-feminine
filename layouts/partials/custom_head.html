@@ -27,7 +27,7 @@
     margin: 20px auto 0;
     position: relative;
     z-index: 1;
-    max-width: 900px;
+    width: min(80%, 85vw);
   }
 
   footer {
@@ -48,4 +48,13 @@
   a { color: #ffcc00; }
   a:hover { color: #ffaa00; text-decoration: underline; }
   a:visited { color: #d4a017; }
+
+  @media (max-width: 768px) {
+    main {
+      width: 100%;
+      margin: 10px auto 0;
+      padding: 24px 20px 32px;
+      border-radius: 0;
+    }
+  }
 </style>
