@@ -1,8 +1,75 @@
 <script>
-  document.querySelectorAll('blockquote.x').forEach(function (el) {
-    if (!el.classList.contains('twitter-tweet')) {
-      el.classList.add('twitter-tweet');
+  (function () {
+    var blocks = Array.prototype.slice.call(document.querySelectorAll('blockquote.x'));
+    if (!blocks.length) {
+      return;
     }
-  });
+
+    function extractUrl(block) {
+      if (block.dataset && block.dataset.url) {
+        return block.dataset.url.trim();
+      }
+      var link = block.querySelector('a[href]');
+      if (link) {
+        return link.href;
+      }
+      return (block.textContent || '').trim();
+    }
+
+    function extractTweetId(url) {
+      if (!url) {
+        return '';
+      }
+      var match = url.match(/status\/(\d+)/);
+      return match ? match[1] : '';
+    }
+
+    function renderTweets(twttr) {
+      blocks.forEach(function (block) {
+        var url = extractUrl(block);
+        var tweetId = extractTweetId(url);
+        if (!tweetId) {
+          return;
+        }
+
+        var container = document.createElement('div');
+        container.className = 'x-embed';
+        block.parentNode.replaceChild(container, block);
+        twttr.widgets.createTweet(tweetId, container, { align: 'center' });
+      });
+    }
+
+    function waitForTwitter(resolve) {
+      if (window.twttr && window.twttr.ready) {
+        window.twttr.ready(function (twttr) {
+          resolve(twttr);
+        });
+        return;
+      }
+
+      if (window.twttr && window.twttr.widgets) {
+        resolve(window.twttr);
+        return;
+      }
+
+      setTimeout(function () {
+        waitForTwitter(resolve);
+      }, 50);
+    }
+
+    function loadTwitter() {
+      return new Promise(function (resolve) {
+        if (!document.getElementById('twitter-wjs')) {
+          var script = document.createElement('script');
+          script.id = 'twitter-wjs';
+          script.src = 'https://platform.twitter.com/widgets.js';
+          script.async = true;
+          document.body.appendChild(script);
+        }
+        waitForTwitter(resolve);
+      });
+    }
+
+    loadTwitter().then(renderTweets);
+  })();
 </script>
-<script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>

@@ -12,26 +12,32 @@
     min-height: 100vh;
   }
 
-  body::after {
-    content: "";
-    position: fixed;
-    inset: 0;
-    background: rgba(0, 0, 0, 0.64);
-    pointer-events: none;
-    z-index: 0;
-  }
-
   header {
+    background-color: #ac11ff;
+    padding: 24px 0;
     position: relative;
     z-index: 2;
-    background-color: #ac51ff;
-    padding: 20px 0;
   }
 
-  main,
+  main {
+    background: rgba(0, 0, 0, 0.7);
+    padding: 40px;
+    border-radius: 18px;
+    box-shadow: 0 30px 80px rgba(0, 0, 0, 0.45);
+    margin-top: 30px;
+    position: relative;
+    z-index: 1;
+  }
+
   footer {
     position: relative;
     z-index: 1;
+  }
+
+  .x-embed {
+    display: flex;
+    justify-content: center;
+    margin: 2.5rem 0;
   }
 
   h1, h2, h3 {
