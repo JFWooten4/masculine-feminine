@@ -55,6 +55,8 @@ Comparatively, the trans girls I've spoken with in Discord these last few months
 
 But there's just an immense urge in my mind that draws a man to become a woman, an undeniable need to be very feminine because natural masculine framing often literally disgusts them. When my cousin became a man, I couldn't understand why, but I see now that the mind has its own journey in life independent of birth programming. And I'll also add that it's just so much easier to speak with natural men relaxingly.
 
+Likely from challenges before my fitness and the show, I've always been afraid to go for the kind of girl I really wanted. I thought it would be easier to sculpt the perfect mare into existence like a securities portfolio. But, again, that was a silly approach defined on a presumption that I was not enough as I stood on my own. I recognize now that the precise mares I desire are out there, waiting to match up—and it sounds like a whole lot more fun and output to go searching for them.
+
 
 [^1]: Much of these relational politicking developments seem to cement on X, so I'll start including more embeds for this work. It's easy enough to reference and worthwhile too given the difficulty of scrolling back to historic archives. Kayla doesn't use X.
 
