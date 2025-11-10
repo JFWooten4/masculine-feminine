@@ -1,5 +1,5 @@
 ---
-title: ""
+title: "🏔 Avalanche of Partner Realizations"
 date: 2025-11-19
 ---
 
@@ -17,7 +17,7 @@ This post   omes after two  of  my normal free-markets macros, and I've been thi
 
 
 
-
+life partner things as dec,
 
 
 post-style iwth notes:
