@@ -17,8 +17,23 @@ This yl;ast year has been very rough as my relationship with Kayla went into des
 
 THat call has freed me up to focus excileively on wokr,  where I aimmediately started giving it my all/. However, the  very next month, I found myself glued  to a screen texting an incredible emmerging-trans (not to jinx them) aqrtist from Canada. We'd met after theri remoix of BGM's great take on Cupcakes 
 
+I needed that time to recover from a week of nonstop rtergualroy drafting that used cafene and adrenaline to formulatge very complex roadmap items for the SYdniccate. I disucuss  this more in a Macros reflection and how it almsot lead to [physcial danger](https://github.com/JFWooten4/free-markets/blob/main/macro/2025-Oct-8.md#crash).  Ul;tiematley,  I just have not found the support that I need tyo revitalize myh masculane abilities quickly.
+
+### Fall into Brony Music
+
+This left  me with a coulpe femanine avenues that  fdilled my tank upj.[^5] ANd poyn songs on a renewed elvel really helkped me in my darkest times. Kayla's unchangable work schedule leaves her gone from 2-11pm wehen I mostg need femanine comfort, buut htat doesn't matter when songs are asycnhronus!
+
+I listened  to a lot , and it really helped cement personality trraits I've had and must now explout to acomplish  my leadership requiremnts.[^6]  MLP alwyas helped so much when I couldn't figure things o ut growing up. And, more imporatnyl, it gave me  a digital family to smile with when I could find iddsparete online groups.
+
+NOtwistanding relatively few fandom friends, the art through music (and  to a letsser extent drawings) become commonplace in the worlds I epxlored,  so  it was like I always had a support network.[^7] EUntprenruship is exceptionalyl lonely, even now, so I can'tr express how important that was to me. And the quality of new pony music is really jawdropping, plus it  just  keeps on  coming out!
+
+
+
+
+
+
 -  trading view
--  Fall  to  music
+-  
 -  
 
 - focus on work
@@ -57,3 +72,11 @@ basically settled for  girl with no (foundig) missions / goals
 [^3]: These are the  COinbase and FIdfelityh stoires which wil lmmake their way into SEC comments, the  former valued at approximatel $100k in missed profit.  IN b  oth cases,  the fiat processing  time disctated  by  interla middlemn policies ruined a trade. UNforutnastley, setup wroks taikes the stame stressful toll whether or not you actually execute orders.
 
 [^4]: This was also politlcaly  motivatged, compelde in the middst  of our first review by the SEC as a personal show of good faith in the midthst of intense scruitynu. I've thought about it for a long time because of the public companies we'll take  on,  and I earnestly picked persuing the mission over my own jopys through managing financia l assets. L:ife has gotten signfiicantly easier since then, but it's oppened a whole that showed me just how much stress emmerged from interactions with Kayla at  home.
+
+[^5]: As for Kayla's; defficeincceis, I think she's been on a path towards masculinity since she started working a job with her degree. She  is sort of lazy and dislikes hard work, which iI though would be OK since I could just become super rich. But it's taken more time and I've relized that I might want someonw who's actualyl happy to particpate in the race of deadly stakes I run with DTCC>.
+
+[^6]: I've noticed myself using a lot more explessive adverbs latyely,  especially "really""
+ or 
+ honestly." I Think this i s the first itme in a long time that I've been so close with myh emotions, ppushign me towrads radical openess about my inner thoughts. All my work freflects the dfevleoping personality within me, as shown for instnace by my making this pository public  while drafting.
+
+[^7]: I have gotten more into enjoying drawings latley as I needed quick pick-me-ups from immensely cute and femneine feed images. In the thick  of things, I used the music becuase it kept me going hwen I needed to write into the night  to meet staff deadlines.  
