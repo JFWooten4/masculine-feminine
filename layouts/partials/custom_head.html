@@ -8,6 +8,45 @@
     background-attachment: fixed;
     color: #ffffff;
     font-size: 1.2em;
+    position: relative;
+    min-height: 88vh;
+    max-width: 88%;
+    width: 88%;
+    margin: 0;
+  }
+
+  header {
+    padding: 21px 0;
+    position: relative;
+    z-index: 2;
+    text-align: center;
+    background: transparent;
+  }
+
+  header .title {
+    justify-content: center;
+  }
+
+  main {
+    background: rgba(0, 0, 0, 0.7);
+    padding: 28px 52px 40px;
+    border-radius: 18px;
+    box-shadow: 0 30px 80px rgba(0, 0, 0, 0.45);
+    margin: 20px auto 0;
+    position: relative;
+    z-index: 1;
+    width: min(80%, 80rem);
+  }
+
+  footer {
+    position: relative;
+    z-index: 1;
+  }
+
+  .x-embed {
+    display: flex;
+    justify-content: center;
+    margin: 2.5rem 0;
   }
 
   h1, h2, h3 {
@@ -17,4 +56,13 @@
   a { color: #ffcc00; }
   a:hover { color: #ffaa00; text-decoration: underline; }
   a:visited { color: #d4a017; }
+
+  @media (max-width: 768px) {
+    main {
+      width: 100%;
+      margin: 10px auto 0;
+      padding: 24px 20px 32px;
+      border-radius: 0;
+    }
+  }
 </style>
