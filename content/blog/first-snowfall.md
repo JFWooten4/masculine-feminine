@@ -7,9 +7,9 @@ For a very long time, I've exclusively done what was politically expedient. I sp
 
 This post comes after two of my normal free-markets macros, and I've been thinking about it for years in physical journals. A moment of inspiration came when I made this X post.[^1] Vylet's really helped me process unheard emotions over the years, showing me that it's okay to live outside the norms imposed by entrenched political mantras.
 
-<div x-post="https://anonfillyx.com/JFWooten4/status/1980748352644849773"></div>
+<div x-post="https://x.com/JFWooten4/status/1980748352644849773"></div>
 
-She might never know it, but I was the one who applied to Monsdatercat on her behalf after Antonymph. It felt really cool to hear her say she didn't want to be part of the group in a subsequent post, and I loved the throwback to their graphic style she included in _My Love is a Quickscope_ at 3:44.[^2] That was really the point I started seriously exploring my influence on artists.
+She might never know it, but I was the one who applied to Monstercat on her behalf after _Antonymph_. It felt really cool to hear her say she didn't want to be part of the group in a subsequent post, and I loved the throwback to their graphic style she included in _My Love is a Quickscope_ at 3:44.[^2] That was really the point I started seriously exploring my influence on artists.
 
 ## Trans Girls' Direct Support
 
