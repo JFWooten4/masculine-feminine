@@ -7,7 +7,7 @@ If you don't mind, I'm going to use this space alittle morelike how I've been us
 
 These last months have been quite a lot, and I'll covr ground as fast as reasonable here. That means I;ll be writing over a coupld days at least to get this out, so please mind my narrative frame gaps beetween sections. It all started when I decided to move to Florida .[^leaving] I packed things up and drove from Connerslville to Ciderfest in Milwakee before coming home to Charlotte.
 
-div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
+<div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
 
 
 
@@ -22,16 +22,10 @@ div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
 
 ## Handling Streossed Emotinal Disconnection
 
-September 27
+September 27[^adrressing]
 
-```
-To dad main house - 30 days
-Mom months xmas - 30 days to jan from EoDec
-1 month in secod. Fl house
 
-NoQction to to chives from "indeterminent counchsurfing period"
-with basis in significance in the movement
-```
+[^adrressing]: The specific idea was to spend four months floating between family properties, ending on the couhc of a work friend for the posterity of writing during an "indeterminent counchsurfing period" to make a strong cased for immediately terminatung our iwterpretatios as a physically-bound orgsanization. The idea came from a 2am stress-pacing walk around the new paved trail behind our duplex, which is its own story for my next post. These 
 
 ## Taking Off Asperger's Masks
 
