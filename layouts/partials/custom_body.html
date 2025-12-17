@@ -4,7 +4,8 @@
     if (!targets.length) return;
 
     const extractUrl = (el) =>
-      (el.dataset && el.dataset.xUrl) ||
+      el.getAttribute('data-post') ||
+      (el.dataset && (el.dataset.post || el.dataset.xUrl)) ||
       (el.querySelector('a[href]') && el.querySelector('a[href]').href) ||
       (el.textContent || '').trim();
 
