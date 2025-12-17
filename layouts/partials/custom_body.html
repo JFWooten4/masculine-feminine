@@ -3,11 +3,7 @@
     const targets = Array.from(document.querySelectorAll('[data-post]'));
     if (!targets.length) return;
 
-    const extractUrl = (el) =>
-      el.getAttribute('data-post') ||
-      (el.dataset && (el.dataset.post || el.dataset.xUrl)) ||
-      (el.querySelector('a[href]') && el.querySelector('a[href]').href) ||
-      (el.textContent || '').trim();
+    const extractUrl = (el) => el.getAttribute('data-post');
 
     const extractTweetId = (url) => {
       const match = /status\/(\d+)/.exec(url || '');
