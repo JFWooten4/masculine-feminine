@@ -1,4 +1,4 @@
-## > Love is a Weapon, so Use it Like One
+## Love is a Weapon so Use it Like One
 
 ### Inspirations
 
