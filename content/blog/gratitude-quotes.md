@@ -7,3 +7,36 @@
 - JFWooten4/gratitude-journal/2024/Dec/1.md
 
 
+> God it was so lonely sleeping by myself. I realized that the only reason I used to get up at 4am was because I had to bend my life around the will of other people.
+
+- JFWooten4/gratitude-journal/2024/Oct/9.md
+
+
+> She was sooooo much more feminine back then
+
+> But now she's supporting them financially. And that's fucking unacceptable in my book. It's about as bad as me living at home with my mom.
+
+- JFWooten4/gratitude-journal/2024/Oct/28.md
+
+
+> I feel quite clouded when I can't express this side of me.
+
+> happily together
+
+- JFWooten4/gratitude-journal/2025/Aug/5.md
+
+
+You can see things start to get pretty bad around JFWooten4/gratitude-journal/2025/Aug/8.md
+
+
+> finally feel like I'm on the other side
+
+> I have found my heart and soul again
+
+- JFWooten4/gratitude-journal/2025/Dec/3.md
+
+
+
+
+
+
