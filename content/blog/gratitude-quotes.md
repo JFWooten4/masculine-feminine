@@ -77,3 +77,120 @@ You can see things start to get pretty bad around JFWooten4/gratitude-journal/20
 
 - JFWooten4/gratitude-journal/2025/Dec/26.md
 
+
+> I feel a lot like Twilight getting her wings, and had a nice moment to recollect on such about an hour ago. Was nice to enjoy some childhood pasts and reconnect with early experiences. Damn man, I literally was back to picturing RD when with K earlier today.
+(re Chives and Bur VC)
+
+> That work of pastel equines has influenced me so deeply. It was there for me when everyone else left, and it showed me such a magical better way.
+
+> I remember her doing that all the time back at the tail end of college, and it's nice to get back to that feeling again. She's so feminine, and I love it so, so much. I really hope things are gonna work well when I run out of money in a couple months lol.
+(re interruptive sex)
+
+- JFWooten4/gratitude-journal/2025/Feb/18.md
+
+
+> It can get tough with so much to accomplish, but I've found myself really effectively looking forward and just taking my time to do things, knowing that all I need to do is keep persisting and the path ahead will reveal itself.
+
+> ...it kind of feels like K, where I finally have someone I can just be myself with and not need to continue spraying up this act of business professionalism (in the working case).
+
+> I really appreciate how everyone I know and love gives me the leeway to be myself, with time left in solitude to explore and become my own best person.
+
+> K was super happy to see me back, and the drive home was really nice, getting to hear about how everything went for her the last week. She had a tough time when I was gone, which I notice is a common thing for her
+(after ski trip)
+
+> Can't wait to have fun with her doing such in the immediate weekend, as we prep for her very special birthday and V-Day. Sometimes I think Corey would puke at a few things I do
+
+> We even got to do a whole Mario Party before some more work with LEGOs and painting fun. And what an awesome salad she makes. I'm very thankful she's in my world to make it fun.
+
+- JFWooten4/gratitude-journal/2025/Jan/14.md
+
+
+> I've had a sort of weird feeling today that I never remember having before. Before I get into it, I was thankful for K, who was extremely cute helping me up into work this morning. She even brought me a delicious tea... So this feeling I'm having, it's a reliance on others
+
+- JFWooten4/gratitude-journal/2025/Jan/15.md
+
+
+> that Ken Ashcorp lyric lately: A girl's worth is measured by her denier
+
+> I've been thinking about what I'd like everything to look like once she doesn't need to work anymore.
+
+> One key aspect is travel planning... But when it happens, I can see her going into a relatively masculine state. She gets all short and testing-ish.
+
+> I try so hard to give people the leeway to fail, but on sizable things like a luxury hotel, it can be challenging to bite my tongue when I see very plainly that ten minutes of research would save material sums. But of course, this is the trade-off of letting others do things and make mistakes. I know I need to let them fail and learn on their own for longstanding effectiveness.
+
+> What I should really do is chat with Corey Wayne one of these days.
+
+- JFWooten4/gratitude-journal/2025/Jan/23.md
+
+
+> ...he sings that he "just thought it would be nice, to not have to pay the price." I know it sounds crazy because it's already been so long, but I'm coming to recognize just the huge lifetime of work that lies ahead of me to achieve these society-changing goals. It makes me think back to the easier times of simple trading even through the inefficiencies of central brokers, when everything was so much easier.
+(re her AS easy)
+
+> I find I get really hard on myself... And even though things might not always go flawlessly, I feel that I am always putting my best hoof forward to become the most exceptional person I can be.
+
+> I think back at all those formative lessons, and I compare myself to the flawless execution I know I'm capable of. I appreciate this confidence and understanding. But now I want to just accept things for how they are and keep moving forward.
+
+> I've helped a lot around the house lately... I also helped her with the car tires... she accepts my focus on work so far as to not focus on managing her retirement assets anymore. That was really a big drag which introduced... a lot because of how much I care about asset management, and I feel really good to be completely free of all managerial thoughts after the transition is done.
+
+> ...felt exactly like embracing a free market for the first time in a long time
+
+> [brony music] and some time on the swingset are the two things I've locally found to help take my mind off the deepest work.
+
+- JFWooten4/gratitude-journal/2025/Jul/17.md
+
+
+> Lol she was like "just make your own food," which resulted in a dozen pints of Nick's at the start.
+(last week so 13th-15 meeting)
+
+> I remember I used to make desserts and casseroles galore during Uberman with all the time and caloric necessity. But I've (thankfully in a way) moved myself past that use of time, at least to the extent that it doesn't help at all to dissociate from working thoughts. The lack of a dishwasher for the last year might have a factor to do with this, but it was a developing trend even back in Atlanta.
+
+> I've tried limiting external (non-Kayla) chats to once a day, and generally continuing to avoid public spaces. It's been working pretty well, and I haven't gone off the rails yet... family extends not to my parents or relatives because even those are sadly nonpersonal to the fullest extent of a partner I don't have to keep a story with.
+
+- JFWooten4/gratitude-journal/2025/Jul/20.md
+
+
+> I might not be perfect at all this relationship stuff, but I'm so thankful I have something real to base all my work on before the glow up, because after that point it's practically impossible.
+
+> the work got so hard on some nights that I caved and popped into a trial of YouTube Music just to keep the energy flowing. While I thoroughly enjoy the time there, I'm thinking about dropping the gym membership and just using local equipment + a pair of running shoes. I just cannot for some reason get over the constant centralized music
+
+- JFWooten4/gratitude-journal/2025/Jul/27.md
+
+
+> I'm having a really tough time... I just wish I had somebody in my life who actually understood this side of me.
+(re pone pronouns)
+
+> it literally feels exactly like Apple Bottom/Split
+
+- JFWooten4/gratitude-journal/2025/Jul/30.md
+
+
+> Lol I haven't slept hahahaha Man I'm tired. Lol we have to get on the flight in like an hour brughhsgghs.
+(no Response items)
+
+- JFWooten4/gratitude-journal/2025/Jun/5.md AM
+
+> She just made me a pasta with seasonings and an egg that was to die for@! I feel complete in every sense of the word on the inside. I'm so thankful for this massive fulfillment and loving community constantly supporting us in an endeavor to my goal objective.
+
+- JFWooten4/gratitude-journal/2025/Jun/2.md
+
+
+> I think K was right about how the real world has lots of people I get to talk to
+(akin to later Mom)
+
+> Today I went through a bunch of old photos with both of us together and just started bawling.
+
+> It was also the first time I've been to church since Italy two years ago.
+
+- JFWooten4/gratitude-journal/2025/Jun/15.md
+
+
+> I turned back on old photos K and I took together all these years. I was brought to tears in happiness reviewing just how much we'd done together.
+
+> I have so much to live for now. So much on the line.
+
+> I've been taking more and more walks around the park lately to help center myself and find peace.
+
+> I'm very thankful for all she's put into that and cleaning up the house.
+
+- JFWooten4/gratitude-journal/2025/Jun/17.md
+(day ofter Response 3, day of 4)
