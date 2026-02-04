@@ -302,3 +302,75 @@ You can see things start to get pretty bad around JFWooten4/gratitude-journal/20
 
 - JFWooten4/gratitude-journal/2025/Oct/2.md
 
+
+> I am happy things are so vibrant, but I'm questioning whether this living situation can accommodate the immense amount of work I need to complete. I thought my foundation was solid bedrock, but now I'm realizing it could be the same mud everyone else uses. I just want something closer to the market.
+
+> I love the market so much. I don't understand how I lost it, but I respect my choices to favor integrity over xxxxx (idk, what do you call it: adrenaline, joy, happiness?). There's something to investing that's just so amazing, and I wish I had someone who could share that feeling with me.
+
+> It's been so much progress lately in oral conversation that I can't close my eyes or turn off my brain. I even cancelled my gym membership some weeks back to take out ancillary noisiness and focus on absorbing the sentiment growth all around. I want to give my complete and total ability to the cause once we are funded, because I care about asset management more than anything in the world and will show everyone just how amazing I can be with a portfolio made of friendship.
+
+- JFWooten4/gratitude-journal/2025/Oct/16.md
+
+
+> I was so ingrained in pointing out the flaws within the CCP structure that I forgot who I am and what I care about.
+
+- JFWooten4/gratitude-journal/2025/Oct/21.md
+
+
+> Lately discussion of politics has been a real bore on me. It's just gotten less and less fun to censor myself out of respect for a dilapidated status quo. Even though the power is completely lopsided, my friends are supporting me to speak the truth and be myself.
+
+> I want to hold the line
+
+- JFWooten4/gratitude-journal/2025/Oct/23.md
+
+
+> And that's what I've been wrestling with lately as I face the commitment to marriage. It's something I had to contend with years strong and past with choosing Stellar as the sole chain to implement TAD3. And I always had it present with the administrative SEC relationship.
+
+> I think I'm coming to terms with things. And I'm ready to let go of fear and give it a shot. I just don't see a single other path forward.
+
+> There's a special and direct feeling I get when doing the real intense work. It's a fragile state that takes a lot, and it's just so much harder to get there or maintain it when placed under external constraints... I know I've given up a lot in personal gain terms. And I can accept... this void of food, friends, or fun.
+
+- JFWooten4/gratitude-journal/2025/Sep/3.md
+
+
+> I appreciate that I can step back and see the socializing as something that really unfortunately does not fuel me. It came only from my own overexertion. And I see that I need to disconnect from this excess stimulation to stay the course.
+
+> I guess also thanks to Tamers for dropping something so different today. In the watch party I really saw through my own eyes just how nonadditive this has been in my life. I am glad for the fun and games I got to enjoy, especially alongside family, but I understand it's just depriving my crucial reserves for fruitless personal hedonics ✌🏼
+
+- JFWooten4/gratitude-journal/2025/Sep/4.md
+(YO is this denial??)
+
+
+> I wish I had the free-caringness to get nice funs like that on an impulse.
+(re her getting toy)
+
+> there's a lot of sensory stimulation like driving and talking or music at the Outback she finally got to take me to.
+
+> Well here I am, everything right and myself as Mr. Right. It doesn't really feel all that high up like framing out to be.
+
+> It's time to ease away from that attention drain anyway to focus on the mission. I know it's not as sexy, but I am able and damn willing to pursue it in this condition. To change course now would needlessly delay it all
+(re contemplating the relationship)
+
+- JFWooten4/gratitude-journal/2025/Sep/6.md
+
+
+> there's just nothing I'm going to be able to change at this point life-wise
+
+> I have got who I am down pat.
+
+- JFWooten4/gratitude-journal/2025/Sep/11.md
+
+
+> I want to renounce politicking in all its forms and get down to business.
+
+> I’m coming to terms with the permanence of her temporary existence as an interim placeholder.
+(coming to terms with the fact that she’s in your life for now, filling a space or role, but not meant to be permanent)
+
+- JFWooten4/gratitude-journal/2025/Sep/22.md
+
+
+> It was a big, huge, massive (pick one lol) day for work, but it came with equivalent personal costs. It's been like this for some time
+
+> I know I can make things anew because I deserve happiness.
+
+- JFWooten4/gratitude-journal/2025/Sep/26.md
