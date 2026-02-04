@@ -194,3 +194,43 @@ You can see things start to get pretty bad around JFWooten4/gratitude-journal/20
 
 - JFWooten4/gratitude-journal/2025/Jun/17.md
 (day ofter Response 3, day of 4)
+
+
+> I'm done trying to keep satisfying my parents and give into easy fun activities just because they'd otherwise be expensive to do independently. And I fucking mean that for these damn credit-card and bank offers too
+
+- JFWooten4/gratitude-journal/2025/Mar/22.md
+
+
+> it's been reasonably documented in here that I've sometimes wondered about different paths, fearing a miss of the paths so tempting. I'm glad to say that's all behind me, and I find myself fully committed to the course now. There's nothing else but the path I've chosen, and I'm never looking back.
+
+- JFWooten4/gratitude-journal/2025/Mar/28.md
+
+
+> Today I took another look at K's picture book... That scrapbook always makes me cry, and I love her so much. Particularly love this incredible thing she made all those years back. I can't believe we met under such inspired circumstances as the sneeze happened.
+
+> I can't wait to marry her.
+
+> I truly feel like those kids out there, playing around and doing everything I love each day.
+
+- JFWooten4/gratitude-journal/2025/May/27.md
+
+
+> I can't shake the feeling of needing to be alone.
+
+> I keep making friends with trans girls, and I just want to say like lol so much fkn easier than real women. Like I just appreciate the upfrontness that doesn't leave me filtering every waking word through a bureaucratic process.
+
+> I miss that feeling of what happiness was like, and I hope I can find it soon. I've been recharging my batteries on X feeds full of ponies, which has been awesome and even led to some new friends.
+
+- JFWooten4/gratitude-journal/2025/Nov/3.md
+
+
+> I know love is important
+
+> I want to find it again someday
+
+> I know that I love her but I just can't stand in this environment anymore
+
+> like how it was way back then with my Mom
+
+- JFWooten4/gratitude-journal/2025/Nov/5.md
+
