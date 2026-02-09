@@ -1,7 +1,10 @@
 
 
 
+one thing ive notcied aa lot is that i am in the posinitn of the bitch
 
+
+there was a 4x - 3hr depr on last Sat the 7
 
 
 
@@ -25,3 +28,4 @@ But, before we get into all that., same celebteanions is in order gor Ponyxill C
 ### 3rd final call
 
 "Do you really believe in me
+
