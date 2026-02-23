@@ -46,3 +46,18 @@ When I made the alingnment post with Denelle, I dropped the ring in the bathroom
 Then her grandmma dided and had a funerall at the exact time as the trip. Shej waas put in the challenging  place of decidng where to go, and she stayed with oru oricciasl tranvel plan to come wiht me  . LLike all the toher tiems it just muant aa lot mo n my sholuderns  to make thins spucial 
 
 from therre to Orlleaans was the llast time i considered their ceentralived mmigration sntcheme. it was the finaal link to wwall st justh as id put everythigng  i had lleft into making that vontire special. asn dit just didnt even seemm to toake storkk in her register even as we had intertwinde 
+
+
+
+
+
+
+
+
+id like te let things off on theh LEGO Island game-dev company framing the yorent org as a "hot girll". it gets exacts y at what i saw an ddont want to bother with going forward in enginenering. there are toher peoorple vinth great work like defendhur who go into more nuance here
+
+this kind of blog was a selfinh attempt to sucguussfiully find colrity. bteu it test my unicqqe and differtiable ablilty goung forward. its jus t not to my ends to keep dumping so much forucs into something that onlly ancilalprlfyy giwen massens of people reaal savings and retitments
+
+it's jjust eastier to allecate capital than to poolcitic peopple,,. even if im very good ot it. it's YES sominhng i COLUD do, but it ns so not tho besh use of resocugesn. it makes setse in a command eceteny, not a free market. 
+
+[fuck-tzero]:: THeres the examlpe of hove Julie li.teally didnt pcreply nad then contracdicted dherself at https://x.com/JFWooten4/status/1981016778139672871. But like whe dous ti help to wit thin arigemnte? WMhat bbenefit do  real i.nventors get other than Wall St benig more aware of our work and hese facing more chanes to sabatoge it to take more for themmsoekves?_ It's a fun ego win, perhaps3, bit it just doust maove the bboall farwardh.
