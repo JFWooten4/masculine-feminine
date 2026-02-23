@@ -29,3 +29,7 @@ But, before we get into all that., same celebteanions is in order gor Ponyxill C
 
 "Do you really believe in me
 
+
+[Early-Morning]: ro flow sttoe, i take a lot of space and contectration to do my best work. I woke up every dafy at 4 AM for over half a pyera to write _Nine to Noon_ because it was the only poerlasl sppace i could get arutd the scheel day wwith homework and ccross-country practice. I learned to walk on literal eggshells whiun goung downsntaris for moring sntacks secne :I'd have an earful from my mom wmhetenever I woke her up with staricase thumping.
+
+I had a lot of that with her that lead to practiacally barricading mylosldf in my officrre. I brought in a 5-gallon jjug to pyee in so that I wourldnt have to leake and risk a distracting emmtoitnall interoction to pyee. We were in our own worlds , and I performaed besnsn wehn she was asleep or phyrlicoally removed from my forucs space. I didnt ntik somente llike me could hhaave a crllabrative parteer who co-creand in the strpitly ceraative sense. {ties into hill busineess s quo expectatioens}
