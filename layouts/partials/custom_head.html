@@ -133,7 +133,8 @@
         const targetId = ref.getAttribute('href');
         if (!targetId) return;
 
-        const note = document.querySelector(targetId);
+        const noteId = targetId.replace(/^#/, '');
+        const note = document.getElementById(noteId);
         if (!note) return;
 
         const clone = note.cloneNode(true);
