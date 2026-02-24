@@ -55,11 +55,50 @@
 
   h2 {
     font-size: 1.3em;
-    margin-top: 1.5em;
+    margin-top: 1.8em;
   }
 
   h3 {
     font-size: 1.1em;
+  }
+
+  sup a[data-footnote-popup] {
+    position: relative;
+    display: inline-block;
+    cursor: pointer;
+  }
+
+  .footnote-popover {
+    display: none;
+    position: absolute;
+    left: 50%;
+    bottom: calc(100% + 0.45rem);
+    transform: translateX(-50%);
+    width: min(24rem, 75vw);
+    padding: 0.55rem 0.7rem;
+    border: 1px solid rgba(255, 255, 255, 0.28);
+    border-radius: 0.5rem;
+    background: rgba(15, 15, 15, 0.96);
+    color: #fff;
+    box-shadow: 0 12px 28px rgba(0, 0, 0, 0.45);
+    font-size: 0.88rem;
+    line-height: 1.35;
+    text-align: left;
+    z-index: 999;
+  }
+
+  sup a[data-footnote-popup]:hover .footnote-popover,
+  sup a[data-footnote-popup]:focus .footnote-popover,
+  sup a[data-footnote-popup].is-open .footnote-popover {
+    display: block;
+  }
+
+  .footnote-popover p {
+    margin: 0;
+  }
+
+  .footnote-popover a {
+    color: #ffd86b;
   }
 
   a { color: #ffcc00; }
@@ -75,3 +114,47 @@
     }
   }
 </style>
+<script>
+  (function () {
+    const refs = Array.from(document.querySelectorAll('sup a[href^="#fn:"]'));
+    if (!refs.length) return;
+
+    const closeAll = () => {
+      refs.forEach((ref) => ref.classList.remove('is-open'));
+    };
+
+    refs.forEach((ref) => {
+      const targetId = ref.getAttribute('href');
+      if (!targetId) return;
+
+      const note = document.querySelector(targetId);
+      if (!note) return;
+
+      const clone = note.cloneNode(true);
+      clone.querySelectorAll('.footnote-backref').forEach((el) => el.remove());
+
+      const popover = document.createElement('span');
+      popover.className = 'footnote-popover';
+      popover.innerHTML = clone.innerHTML.trim();
+
+      ref.setAttribute('data-footnote-popup', 'true');
+      ref.appendChild(popover);
+
+      ref.addEventListener('click', function (event) {
+        event.preventDefault();
+        const willOpen = !ref.classList.contains('is-open');
+        closeAll();
+        if (willOpen) ref.classList.add('is-open');
+      });
+    });
+
+    document.addEventListener('click', function (event) {
+      if (event.target.closest('sup a[data-footnote-popup]')) return;
+      closeAll();
+    });
+
+    document.addEventListener('keydown', function (event) {
+      if (event.key === 'Escape') closeAll();
+    });
+  })();
+</script>
