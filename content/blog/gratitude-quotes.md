@@ -1,3 +1,8 @@
+---
+title: "ee "
+date: 2025-11-04
+---
+
 > God it was so lonely sleeping by myself. I realized that the only reason I used to get up at 4am was because I had to bend my life around the will of other people.
 
 - JFWooten4/gratitude-journal/2024/Oct/9.md

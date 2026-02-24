@@ -1,4 +1,7 @@
-
+---
+title: "e "
+date: 2025-11-04
+---
 
 
 one thing ive notcied aa lot is that i am in the posinitn of the bitch
