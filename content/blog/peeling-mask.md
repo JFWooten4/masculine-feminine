@@ -21,7 +21,7 @@ So I left., it was  grobably too ling coming. i've spent a LOT of time learning 
 But, before we get into all that., same celebteanions is in order gor Ponyxill Ciderfest! Te fandem has xeen tho most amazing ggt landitg-ground i coud possibly ask ggcor during all this.[^1]
 
 
-<div post="1991931881986933088"></div>
+<div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
 
 
 

@@ -101,6 +101,10 @@
     color: #ffd86b;
   }
 
+  html.footnote-popovers-enabled .footnotes {
+    display: none;
+  }
+
   a { color: #ffcc00; }
   a:hover { color: #ffaa00; text-decoration: underline; }
   a:visited { color: #d4a017; }
@@ -116,45 +120,54 @@
 </style>
 <script>
   (function () {
-    const refs = Array.from(document.querySelectorAll('sup a[href^="#fn:"]'));
-    if (!refs.length) return;
+    function initFootnotePopovers() {
+      const refs = Array.from(document.querySelectorAll('sup a[href^="#fn:"]'));
+      if (!refs.length) return;
+      document.documentElement.classList.add('footnote-popovers-enabled');
 
-    const closeAll = () => {
-      refs.forEach((ref) => ref.classList.remove('is-open'));
-    };
+      const closeAll = () => {
+        refs.forEach((ref) => ref.classList.remove('is-open'));
+      };
 
-    refs.forEach((ref) => {
-      const targetId = ref.getAttribute('href');
-      if (!targetId) return;
+      refs.forEach((ref) => {
+        const targetId = ref.getAttribute('href');
+        if (!targetId) return;
 
-      const note = document.querySelector(targetId);
-      if (!note) return;
+        const note = document.querySelector(targetId);
+        if (!note) return;
 
-      const clone = note.cloneNode(true);
-      clone.querySelectorAll('.footnote-backref').forEach((el) => el.remove());
+        const clone = note.cloneNode(true);
+        clone.querySelectorAll('.footnote-backref').forEach((el) => el.remove());
 
-      const popover = document.createElement('span');
-      popover.className = 'footnote-popover';
-      popover.innerHTML = clone.innerHTML.trim();
+        const popover = document.createElement('span');
+        popover.className = 'footnote-popover';
+        popover.innerHTML = clone.innerHTML.trim();
 
-      ref.setAttribute('data-footnote-popup', 'true');
-      ref.appendChild(popover);
+        ref.setAttribute('data-footnote-popup', 'true');
+        ref.appendChild(popover);
 
-      ref.addEventListener('click', function (event) {
-        event.preventDefault();
-        const willOpen = !ref.classList.contains('is-open');
-        closeAll();
-        if (willOpen) ref.classList.add('is-open');
+        ref.addEventListener('click', function (event) {
+          event.preventDefault();
+          const willOpen = !ref.classList.contains('is-open');
+          closeAll();
+          if (willOpen) ref.classList.add('is-open');
+        });
       });
-    });
 
-    document.addEventListener('click', function (event) {
-      if (event.target.closest('sup a[data-footnote-popup]')) return;
-      closeAll();
-    });
+      document.addEventListener('click', function (event) {
+        if (event.target.closest('sup a[data-footnote-popup]')) return;
+        closeAll();
+      });
 
-    document.addEventListener('keydown', function (event) {
-      if (event.key === 'Escape') closeAll();
-    });
+      document.addEventListener('keydown', function (event) {
+        if (event.key === 'Escape') closeAll();
+      });
+    }
+
+    if (document.readyState === 'loading') {
+      document.addEventListener('DOMContentLoaded', initFootnotePopovers);
+    } else {
+      initFootnotePopovers();
+    }
   })();
 </script>
