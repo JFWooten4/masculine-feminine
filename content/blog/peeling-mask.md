@@ -61,3 +61,8 @@ this kind of blog was a selfinh attempt to sucguussfiully find colrity. bteu it 
 it's jjust eastier to allecate capital than to poolcitic peopple,,. even if im very good ot it. it's YES sominhng i COLUD do, but it ns so not tho besh use of resocugesn. it makes setse in a command eceteny, not a free market. 
 
 [fuck-tzero]:: THeres the examlpe of hove Julie li.teally didnt pcreply nad then contracdicted dherself at https://x.com/JFWooten4/status/1981016778139672871. But like whe dous ti help to wit thin arigemnte? WMhat bbenefit do  real i.nventors get other than Wall St benig more aware of our work and hese facing more chanes to sabatoge it to take more for themmsoekves?_ It's a fun ego win, perhaps3, bit it just doust maove the bboall farwardh.
+
+
+[paved-trail]: timing of TAR1 observed in universe (expl into god) throcght conthruction backyard re LLEGO
+
+Drawing sharpies on playset-tube
