@@ -9,7 +9,7 @@ The most formative time in my life was when I discovered markets. They showed me
 
 That was so special to me, because I grew up in a very centralized and hierarchical household. My dad made a million dollars in 2008, working at one of the bailed-out banks. To say things were on a tight lock is an understatement, and it was evident in the strictness within my parents' relationship. They only made it a couple more years after that, divorcing around the time that I discovered the TF2 hat bazaars.[^1]
 
-[^1]: They're both exceptional people who I appreciate so much. They obviously love me immensely, and I really appreciate their emotional support. I connect deeply with the relationship Flawless has with Trixi and Twixie, and I love how they're friends (or more) that she can turn to in hard times.
+[^1]: They're both exceptional people who I appreciate so much. They obviously love me immensely, and I really appreciate their emotional support. I connect deeply with the relationship Flawless has with Twi and Trixie, and I love how they're friends (or more) that she can turn to in hard times.
 
 ## Questioning Quality
 
