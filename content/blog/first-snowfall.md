@@ -29,7 +29,7 @@ Notwithstanding relatively few fandom friends, the art through music (and to a l
 
 ### Capital Allocation and Animations
 
-During this time, I also discovered [Tamers](https://anonfillyx.com/TheTamers12345) and LFØ's [Flower](https://youtu.be/DkUEHMfQw-I). Surely it's been discussed before, but I wanted to link for clarity of discovery. There's a part of me that wants to run away from all the perfected politicking and present my innermost quirks to the world through my work, and I believe this transparency helps start that vulnerability.
+During this time, I also discovered [Tamers](https://x.com/TheTamers12345) and LFØ's [Flower](https://youtu.be/DkUEHMfQw-I). Surely it's been discussed before, but I wanted to link for clarity of discovery. There's a part of me that wants to run away from all the perfected politicking and present my innermost quirks to the world through my work, and I believe this transparency helps start that vulnerability.
 
 In both cases, a single person created unbelievable art, one with MS Paint and the other based on a decade of internet experience at studios like DreamWorks. They're both incredible examples of this growing trend these last years for people to just make whatever they want without asking studios for permission, which led to exceptional hits like Glitch and Vivziepop.[^8] These and so many others showed me what people can do when they stick to their goals, which really refreshed my personal belief in human ingenuity and the efficiency of markets to alter reward.
 

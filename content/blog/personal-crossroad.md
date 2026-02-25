@@ -5,7 +5,7 @@ date: 2025-11-04
 
 I _finally_ got referencable recognition by Trimbath in regard to the tZERO line of questioning. I also have an ironclad irrefutable public statement from their executive team (at least on the marketing front) referring to their outreach. This matters, but isn't the focus here, because I replied duly within the turnaround time for our chats, and they failed to even acknowledge that interaction in their erroneous statement of no contact.
 
-Six days continued into the Trimbath remarks by roping their CEO back in, who blundered in not showing up to a public commitment for discussion. That was a nice cherry on top of bringing Trimbath into the loop. I've come to terms with my own timeline and personality, in the sense that I didn't particularly prepare anything for impression on Trimbath, namely because I already had three interactions with her which introduced my profile.
+6days continued into the Trimbath remarks by roping their CEO back in, who blundered in not showing up to a public commitment for discussion. That was a nice cherry on top of bringing Trimbath into the loop. I've come to terms with my own timeline and personality, in the sense that I didn't particularly prepare anything for impression on Trimbath, namely because I already had three interactions with her which introduced my profile.
 
 I know it worked well because she explicitly tagged my account in discourse, but there was another important setup point in those prior communications. I started sponsoring her Ko-Fi for the same $10/mo I do on other centralized platforms. She posted a quick thanks after referencing the URL for a postcard I wrote here back in 2022.
 
