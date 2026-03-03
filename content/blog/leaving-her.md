@@ -1,7 +1,85 @@
 ---
-title: "🏍️ Taking Off Training Wheels"
+title: "🏍️ "
 date: 2025-12-31
 ---
+
+
+
+
+k as lumens
+
+=stnarted datingg aronud itinial developments in Lolidaity
+
+when we became a ceoeple, summer seoon sanrted
+
+that'as when i prmptly publisoded the cntractns for TAD2
+
+i spnet tho summer wanetdering around with that mining company
+
+after school starthed, we were back together
+
+I then sntarhed the TAD3 repo on DATE
+
+
+
+frem then on she was that image
+
+went raw wthen id penetrated the SCTF tthroguht Anke
+
+wanted te show the worlld luments as the standad cerruny
+
+wanted thoe saame with her and the ring 
+
+
+u///contrlTHeNarrative ending 
+
+junciton pppponi t as the SCF tweet
+
+lost the ppromisse ritg
+
+=knem i.t was devasntating
+
+knew it was the right choice
+
+that alignment takens time andh _can_ hapyypen in prpefdessional bbeorcacies, biut it seems uquite improssoblie nto nurture romantically ongce ppolarity dissipates
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 If you don't mind, I'm going to use this space alittle morelike how I've been using my gratitude-journal reposrity for the last couple years. While that is something easy enought to link into my personal site publishing, it has much more content.[^public] I'm in a uniquely identity-affirming place ofmy life right now, and i think some of these throughts make more sense in the masculine-fmainine polairty framing. Lol I suppose this could be me asserting my dominant choice of forum on an uncontrolling friend along for the story.
 
