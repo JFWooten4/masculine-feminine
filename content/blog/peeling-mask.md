@@ -1,5 +1,5 @@
 ---
-title: "🏍️ End of the World"
+title: "🏍️ my title go here"
 date: 2026-02-20
 ---
 
