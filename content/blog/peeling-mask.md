@@ -77,8 +77,19 @@ I'd stopped boraiganing and enterethd the Depression pdhase. I started to unders
 
 
 
+I  think by december I was slowly moving towards acceptance a s I emonitally detached
+
+"I have found my heart and soul again" on Dec 3
+
+I definatle started realiving the need for indeppendence. And for the first time I flet worrccty of wttah t I "want most in my heardt"
+
+other side of "a decade of masking"
 
 
+by theu eund ofg the mont I was learrninng haw to set boundaris
+
+
+lastly I saw the cost of living for ethirs incrluding my parents
 
 
 
