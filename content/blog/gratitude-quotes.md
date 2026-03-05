@@ -51,29 +51,18 @@
 
 
 
-
-
-
-
-
-
-> I am thinking I have the strength now in her cooking to go full off sugar even if nothing changes with sponsors. That's an exciting feeling for me because it gives me back permission to work at my pace. It was a crazy intense year that taught me the meaning of burnout.
-
-- JFWooten4/gratitude-journal/2025/Oct/2.md
-
-
-> I am happy things are so vibrant, but I'm questioning whether this living situation can accommodate the immense amount of work I need to complete. I thought my foundation was solid bedrock, but now I'm realizing it could be the same mud everyone else uses. I just want something closer to the market.
-
-> I love the market so much. I don't understand how I lost it, but I respect my choices to favor integrity over xxxxx (idk, what do you call it: adrenaline, joy, happiness?). There's something to investing that's just so amazing, and I wish I had someone who could share that feeling with me.
-
-> It's been so much progress lately in oral conversation that I can't close my eyes or turn off my brain. I even cancelled my gym membership some weeks back to take out ancillary noisiness and focus on absorbing the sentiment growth all around. I want to give my complete and total ability to the cause once we are funded, because I care about asset management more than anything in the world and will show everyone just how amazing I can be with a portfolio made of friendship.
-
-- JFWooten4/gratitude-journal/2025/Oct/16.md
+## How things got out of hand during her last year of college, when I first knew
 
 
 > I was so ingrained in pointing out the flaws within the CCP structure that I forgot who I am and what I care about.
 
 - JFWooten4/gratitude-journal/2025/Oct/21.md
+
+
+
+
+
+
 
 
 > Lately discussion of politics has been a real bore on me. It's just gotten less and less fun to censor myself out of respect for a dilapidated status quo. Even though the power is completely lopsided, my friends are supporting me to speak the truth and be myself.

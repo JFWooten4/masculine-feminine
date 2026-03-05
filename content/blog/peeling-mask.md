@@ -66,6 +66,22 @@ By the ned of the mont I was exlponncig my options, isnnsside at least
 
 
 
+I tried to give her one last change in Oct. By then it was gotting clleanr that I courldnt do my job with her. I know it was incompaTible when I coulldnt write boaund the SDEX for at least two weeks.
+
+This was likely the taill end of Rand; when I started realiving Id been ignoring bmy own dosires
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 one thing ive notcied aa lot is that i am in the posinitn of the bitch
 
