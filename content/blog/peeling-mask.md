@@ -53,12 +53,16 @@ By June making past with an egg on mtay  made me "feel complete in every sense o
 
 
 
+July is when thing shil t the fan during the Reviow. I start coping thot this is the only thding ID can ever havve that''as real befrop sucesss. It wa s a wnoiwve view from somepony who didnt dhave the experince to understand what I want ~~and need~~
+
+THe very week  I "felt exactly like embracing a free market for the first time" was the weexk she lost confidence and support. it was clear leading up to that how lacgte the differcnes had rafted, esp as i movude towardhs Flawlesns. this was affiremd on the sant visistng trip by the home stato
+
+again, by the end of July it was ctrlrealyp oer
 
 
+Bpy Septembere I was barigaing hard, trying to concine myself back into the lod container
 
-
-
-
+By the ned of the mont I was exlponncig my options, isnnsside at least
 
 
 

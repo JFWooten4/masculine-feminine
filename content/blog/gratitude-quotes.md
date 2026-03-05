@@ -49,119 +49,12 @@
 - JFWooten4/gratitude-journal/2025/Jun/15.md
 
 
-> I turned back on old photos K and I took together all these years. I was brought to tears in happiness reviewing just how much we'd done together.
-
-> I have so much to live for now. So much on the line.
-
-> I've been taking more and more walks around the park lately to help center myself and find peace.
-
-> I'm very thankful for all she's put into that and cleaning up the house.
-
-- JFWooten4/gratitude-journal/2025/Jun/17.md
-(day ofter Response 3, day of 4)
 
 
-> ...he sings that he "just thought it would be nice, to not have to pay the price." I know it sounds crazy because it's already been so long, but I'm coming to recognize just the huge lifetime of work that lies ahead of me to achieve these society-changing goals. It makes me think back to the easier times of simple trading even through the inefficiencies of central brokers, when everything was so much easier.
-(re her AS easy)
-
-> I find I get really hard on myself... And even though things might not always go flawlessly, I feel that I am always putting my best hoof forward to become the most exceptional person I can be.
-
-> I think back at all those formative lessons, and I compare myself to the flawless execution I know I'm capable of. I appreciate this confidence and understanding. But now I want to just accept things for how they are and keep moving forward.
-
-> I've helped a lot around the house lately... I also helped her with the car tires... she accepts my focus on work so far as to not focus on managing her retirement assets anymore. That was really a big drag which introduced... a lot because of how much I care about asset management, and I feel really good to be completely free of all managerial thoughts after the transition is done.
-
-> ...felt exactly like embracing a free market for the first time in a long time
-
-> [brony music] and some time on the swingset are the two things I've locally found to help take my mind off the deepest work.
-
-- JFWooten4/gratitude-journal/2025/Jul/17.md
 
 
-> Lol she was like "just make your own food," which resulted in a dozen pints of Nick's at the start.
-(last week so 13th-15 meeting)
-
-> I remember I used to make desserts and casseroles galore during Uberman with all the time and caloric necessity. But I've (thankfully in a way) moved myself past that use of time, at least to the extent that it doesn't help at all to dissociate from working thoughts. The lack of a dishwasher for the last year might have a factor to do with this, but it was a developing trend even back in Atlanta.
-
-> I've tried limiting external (non-Kayla) chats to once a day, and generally continuing to avoid public spaces. It's been working pretty well, and I haven't gone off the rails yet... family extends not to my parents or relatives because even those are sadly nonpersonal to the fullest extent of a partner I don't have to keep a story with.
-
-- JFWooten4/gratitude-journal/2025/Jul/20.md
 
 
-> I might not be perfect at all this relationship stuff, but I'm so thankful I have something real to base all my work on before the glow up, because after that point it's practically impossible.
-
-> the work got so hard on some nights that I caved and popped into a trial of YouTube Music just to keep the energy flowing. While I thoroughly enjoy the time there, I'm thinking about dropping the gym membership and just using local equipment + a pair of running shoes. I just cannot for some reason get over the constant centralized music
-
-- JFWooten4/gratitude-journal/2025/Jul/27.md
-
-
-> I'm having a really tough time... I just wish I had somebody in my life who actually understood this side of me.
-(re pone pronouns)
-
-> it literally feels exactly like Apple Bottom/Split
-
-- JFWooten4/gratitude-journal/2025/Jul/30.md
-
-
-> I feel quite clouded when I can't express this side of me.
-
-> happily together
-
-- JFWooten4/gratitude-journal/2025/Aug/5.md
-
-
-You can see things start to get pretty bad around JFWooten4/gratitude-journal/2025/Aug/8.md
-
-
-> And that's what I've been wrestling with lately as I face the commitment to marriage. It's something I had to contend with years strong and past with choosing Stellar as the sole chain to implement TAD3. And I always had it present with the administrative SEC relationship.
-
-> I think I'm coming to terms with things. And I'm ready to let go of fear and give it a shot. I just don't see a single other path forward.
-
-> There's a special and direct feeling I get when doing the real intense work. It's a fragile state that takes a lot, and it's just so much harder to get there or maintain it when placed under external constraints... I know I've given up a lot in personal gain terms. And I can accept... this void of food, friends, or fun.
-
-- JFWooten4/gratitude-journal/2025/Sep/3.md
-
-
-> I appreciate that I can step back and see the socializing as something that really unfortunately does not fuel me. It came only from my own overexertion. And I see that I need to disconnect from this excess stimulation to stay the course.
-
-> I guess also thanks to Tamers for dropping something so different today. In the watch party I really saw through my own eyes just how nonadditive this has been in my life. I am glad for the fun and games I got to enjoy, especially alongside family, but I understand it's just depriving my crucial reserves for fruitless personal hedonics ✌🏼
-
-- JFWooten4/gratitude-journal/2025/Sep/4.md
-(YO is this denial??)
-
-
-> I wish I had the free-caringness to get nice funs like that on an impulse.
-(re her getting toy)
-
-> there's a lot of sensory stimulation like driving and talking or music at the Outback she finally got to take me to.
-
-> Well here I am, everything right and myself as Mr. Right. It doesn't really feel all that high up like framing out to be.
-
-> It's time to ease away from that attention drain anyway to focus on the mission. I know it's not as sexy, but I am able and damn willing to pursue it in this condition. To change course now would needlessly delay it all
-(re contemplating the relationship)
-
-- JFWooten4/gratitude-journal/2025/Sep/6.md
-
-
-> there's just nothing I'm going to be able to change at this point life-wise
-
-> I have got who I am down pat.
-
-- JFWooten4/gratitude-journal/2025/Sep/11.md
-
-
-> I want to renounce politicking in all its forms and get down to business.
-
-> I’m coming to terms with the permanence of her temporary existence as an interim placeholder.
-(coming to terms with the fact that she’s in your life for now, filling a space or role, but not meant to be permanent)
-
-- JFWooten4/gratitude-journal/2025/Sep/22.md
-
-
-> It was a big, huge, massive (pick one lol) day for work, but it came with equivalent personal costs. It's been like this for some time
-
-> I know I can make things anew because I deserve happiness.
-
-- JFWooten4/gratitude-journal/2025/Sep/26.md
 
 
 > I am thinking I have the strength now in her cooking to go full off sugar even if nothing changes with sponsors. That's an exciting feeling for me because it gives me back permission to work at my pace. It was a crazy intense year that taught me the meaning of burnout.
