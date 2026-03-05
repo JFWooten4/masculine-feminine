@@ -1,11 +1,3 @@
----
-title: "🏍️ "
-date: 2025-12-31
----
-
-
-
-
 k as lumens
 
 =stnarted datingg aronud itinial developments in Lolidaity
