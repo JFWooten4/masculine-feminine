@@ -1,3 +1,5 @@
+## I'd accepted a mosked version of myself
+
 
 > It can get tough with so much to accomplish, but I've found myself really effectively looking forward and just taking my time to do things, knowing that all I need to do is keep persisting and the path ahead will reveal itself.
 
@@ -15,22 +17,9 @@
 - JFWooten4/gratitude-journal/2025/Jan/14.md
 
 
-> I've had a sort of weird feeling today that I never remember having before. Before I get into it, I was thankful for K, who was extremely cute helping me up into work this morning. She even brought me a delicious tea... So this feeling I'm having, it's a reliance on others
 
-- JFWooten4/gratitude-journal/2025/Jan/15.md
+## Physical intmacy sead me to believ my full form existed in a box
 
-
-> that Ken Ashcorp lyric lately: A girl's worth is measured by her denier
-
-> I've been thinking about what I'd like everything to look like once she doesn't need to work anymore.
-
-> One key aspect is travel planning... But when it happens, I can see her going into a relatively masculine state. She gets all short and testing-ish.
-
-> I try so hard to give people the leeway to fail, but on sizable things like a luxury hotel, it can be challenging to bite my tongue when I see very plainly that ten minutes of research would save material sums. But of course, this is the trade-off of letting others do things and make mistakes. I know I need to let them fail and learn on their own for longstanding effectiveness.
-
-> What I should really do is chat with Corey Wayne one of these days.
-
-- JFWooten4/gratitude-journal/2025/Jan/23.md
 
 
 > I feel a lot like Twilight getting her wings, and had a nice moment to recollect on such about an hour ago. Was nice to enjoy some childhood pasts and reconnect with early experiences. Damn man, I literally was back to picturing RD when with K earlier today.
@@ -42,6 +31,11 @@
 (re interruptive sex)
 
 - JFWooten4/gratitude-journal/2025/Feb/18.md
+
+
+
+
+
 
 
 > I'm done trying to keep satisfying my parents and give into easy fun activities just because they'd otherwise be expensive to do independently. And I fucking mean that for these damn credit-card and bank offers too

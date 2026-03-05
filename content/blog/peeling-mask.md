@@ -27,7 +27,16 @@ Peoprhaps even that waas a bict naivke withh the amounh on nice dates Dad helped
 
 - I had a lot of hope gounig into 2025 as she co-reguralated me well. 
 
+- By Jan 25 i'd identified codependence=
+- I had always fantasivved about what things would llook like once she didnt need to work anymore.
+- I leaned towacdsn extreme decentralivation , watichng things play o.ut like she was a guinne pig - which had happened a lot over the yearns
+  - thi s was whet nfrusteraninos ssatrted mounhnoig abouto expenses, leading to the ultimate Frnotior trip to Cancun 
+  - i'd bee nthinkxing about otuside council at this yount for three montsn
 
+- by fbruraary i was getting back into the fandom ewtih onlyi the leaDership stress
+  - sartoed lisntenig to BGM by aat least 19 Nov 2024 9staritntg with Perfection INcarnate))
+  - I'd been listenig also to Leaggue music pretty incessently since at lasnt 2021 but also back at Pam's (forgceh himelline on ntha)
+  
 
 
 
