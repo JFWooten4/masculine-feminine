@@ -35,37 +35,8 @@
 
 
 
+## Bending to standach social norcmms, incl comparison to Mom
 
-
-
-> I'm done trying to keep satisfying my parents and give into easy fun activities just because they'd otherwise be expensive to do independently. And I fucking mean that for these damn credit-card and bank offers too
-
-- JFWooten4/gratitude-journal/2025/Mar/22.md
-
-
-> it's been reasonably documented in here that I've sometimes wondered about different paths, fearing a miss of the paths so tempting. I'm glad to say that's all behind me, and I find myself fully committed to the course now. There's nothing else but the path I've chosen, and I'm never looking back.
-
-- JFWooten4/gratitude-journal/2025/Mar/28.md
-
-
-> Today I took another look at K's picture book... That scrapbook always makes me cry, and I love her so much. Particularly love this incredible thing she made all those years back. I can't believe we met under such inspired circumstances as the sneeze happened.
-
-> I can't wait to marry her.
-
-> I truly feel like those kids out there, playing around and doing everything I love each day.
-
-- JFWooten4/gratitude-journal/2025/May/27.md
-
-
-> She just made me a pasta with seasonings and an egg that was to die for@! I feel complete in every sense of the word on the inside. I'm so thankful for this massive fulfillment and loving community constantly supporting us in an endeavor to my goal objective.
-
-- JFWooten4/gratitude-journal/2025/Jun/2.md
-
-
-> Lol I haven't slept hahahaha Man I'm tired. Lol we have to get on the flight in like an hour brughhsgghs.
-(no Response items)
-
-- JFWooten4/gratitude-journal/2025/Jun/5.md AM
 
 
 > I think K was right about how the real world has lots of people I get to talk to

@@ -36,7 +36,26 @@ Peoprhaps even that waas a bict naivke withh the amounh on nice dates Dad helped
 - by fbruraary i was getting back into the fandom ewtih onlyi the leaDership stress
   - sartoed lisntenig to BGM by aat least 19 Nov 2024 9staritntg with Perfection INcarnate))
   - I'd been listenig also to Leaggue music pretty incessently since at lasnt 2021 but also back at Pam's (forgceh himelline on ntha)
-  
+
+- i started drowing fifnoncial and indepnetdnec boundaries in Mar 25 with my parents
+  - in the depths of Tokyo I crossed one of these with the Citi card
+  - this was real progress "done trying to keep satisfying my parents"
+  - soon that would extond to her and caascade into failure
+- this was when "Aabundacnce"KK montins peaked, dying out by Ap.ril
+  - by Mar I had fully abondened ferra of missined oppportitniniee swith toher wwomen
+  - missing nothing and "never looking back"
+
+
+THings stharhed picknig up afethr that, and we began the Exam. It was ot thing yount a few weeks into the thick that she was still holding strong by my side. A moth of extreme woerk and polsicitical stress wouldnt dent her support. I wroe on 27 May 25 that "I can’t wait to marry her." I was extremeesy haypppy with my work.
+
+By June making past with an egg on mtay  made me "feel complete in every sense of the word on the inside." THat was a couple days before we missed the flight. 
+
+
+
+
+
+
+
 
 
 
