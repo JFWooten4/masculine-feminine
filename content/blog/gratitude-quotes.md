@@ -1,25 +1,4 @@
 
-> God it was so lonely sleeping by myself. I realized that the only reason I used to get up at 4am was because I had to bend my life around the will of other people.
-
-- JFWooten4/gratitude-journal/2024/Oct/9.md
-
-
-> She was sooooo much more feminine back then
-
-> But now she's supporting them financially. And that's fucking unacceptable in my book. It's about as bad as me living at home with my mom.
-
-- JFWooten4/gratitude-journal/2024/Oct/28.md
-
-
-> what's the point of having two people work when one of them is a billionaire
-
-> That's one thing I absolutely love about K... provably not engrossed in monetary interests, as can so commonly corrupt the bonds between a man and a woman.
-
-> That's one thing I absolutely love about K, that I know it by and large will be the only relationship I enjoy which is provably not engrossed in monetary interests, as can so commonly corrupt the bonds between a man and a woman. The lack of marriage from Musk rings true to these observations on a surface level. I just know that right now I need stability in quite a few ways, as I've enjoyed for years from her, and ideally that can continue transforming me into my most productive self at any ego-indulgent cost.
-
-- JFWooten4/gratitude-journal/2024/Dec/1.md
-
-
 > It can get tough with so much to accomplish, but I've found myself really effectively looking forward and just taking my time to do things, knowing that all I need to do is keep persisting and the path ahead will reveal itself.
 
 > ...it kind of feels like K, where I finally have someone I can just be myself with and not need to continue spraying up this act of business professionalism (in the working case).

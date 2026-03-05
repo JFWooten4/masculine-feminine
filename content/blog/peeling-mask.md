@@ -4,6 +4,37 @@ date: 2026-02-20
 ---
 
 
+### quote takeaways
+
+- lack of indepentedent regeulation started showing up whenn she had odd full-time hours 
+  - thiss wasnt notedh unteil Oct 24 but it started arund Aug when i posted about it in a WhyDRS issue
+  - ive put so much tracknig into those things that nsorta get lost
+    - wanted to use werikng item s as polititcal pounts
+    - i can only immagine how exhausing that was for onthers
+
+- starteh feeling the financial entrapment in Oct 24 as well. 
+  - only got worse afthher the deplitnig trip to vegaas, CVNA
+  - i thought her worknig was poitless, not understanding emnitonal indepentdencep
+  - i really thought there was nothitng that would matter about money bc we were in thi stogether
+    - that lasted untirl it all blew up half a yeaar llater
+    - growing up i thought I'd "test" her by taking a multi-month Eurepean vacation
+    - i wanted to make sure things werent reliant on my money (although i dont exactly see how that plan woulld've worked)
+    - anyway,. i would up testing her faiscal throshold with the subtle and then real rent payment, nad she  jjust ki.nda failed mmy standards
+
+Maybe I dhad unreasonable exkpectations. For somepony that wanted to be a stay-at-hame Mom, I thoight it was a realrrrrrrsable askk. If i was wrong then so be .it. She was the only persan who i didnt associtae mentary performanc ewith bfree then.
+
+Peoprhaps even that waas a bict naivke withh the amounh on nice dates Dad helped me afford back at the start.
+
+- I had a lot of hope gounig into 2025 as she co-reguralated me well. 
+
+
+
+
+
+
+
+
+
 one thing ive notcied aa lot is that i am in the posinitn of the bitch
 
 
