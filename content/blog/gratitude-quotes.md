@@ -61,66 +61,7 @@
 
 
 
-
-
-
-
-> Lately discussion of politics has been a real bore on me. It's just gotten less and less fun to censor myself out of respect for a dilapidated status quo. Even though the power is completely lopsided, my friends are supporting me to speak the truth and be myself.
-
-> I want to hold the line
-
-- JFWooten4/gratitude-journal/2025/Oct/23.md
-
-
-> I can't shake the feeling of needing to be alone.
-
-> I keep making friends with trans girls, and I just want to say like lol so much fkn easier than real women. Like I just appreciate the upfrontness that doesn't leave me filtering every waking word through a bureaucratic process.
-
-> I miss that feeling of what happiness was like, and I hope I can find it soon. I've been recharging my batteries on X feeds full of ponies, which has been awesome and even led to some new friends.
-
-- JFWooten4/gratitude-journal/2025/Nov/3.md
-
-
-> I know love is important
-
-> I want to find it again someday
-
-> I know that I love her but I just can't stand in this environment anymore
-
-> like how it was way back then with my Mom
-
-- JFWooten4/gratitude-journal/2025/Nov/5.md
-
-
-> It feels like a balancing act between my body's energy sources. And I need someone who will help replenish the supply no matter what.
-
-> I needed to change the relationship to get into the right place for completion. How can I write about free markets when my own living situation traps me in conformity?... my environment was not conducive to my necessary expression.
-
-> I feel like an eagle flying through the sky rather than a person soaring in the confines of a metal tube. It's an incredible fleeting feeling. And I know what I must do to get more of it.
-
-> My energy has been changing and Kayla picks it up really well because we are very synchronized. I'm going to miss her and I hope she finds what she's looking for in life.
-
-> certain mental roadblocks slowed down my ability to timely respond to material online communications. I believe this stems from the additional mental load I've taken on preprocessing narratives with Kayla. Her responses to unsavvy wording instilled a necessity for flawlessness which is a bar too high for immediate friends
-
-- JFWooten4/gratitude-journal/2025/Nov/10.md
-(3 days after decidng to leave & day of partner post)
-
-
-> I want to become a whole person
-
-> I appreciate that I get to go as fast as I can
-
-> I am thankful for my extended family and even not-in-laws for having fun together in moments away. I really liked the forced time away.
-
-- JFWooten4/gratitude-journal/2025/Nov/14.md
-(see SCF ges pandeer)
-
-
-> now I will be removing another load.
-
-> I hope she keeps on doing well c:
-
-- JFWooten4/gratitude-journal/2025/Nov/19.md
+## Ciderfest
 
 
 > It’s been so many years of trying to perform for everyone else, and I can’t express just how amazing it felt to finally do things for myself for a change. This weekend of pone was literally unbelievable and life-changing. I have not felt myself in about eight years up until this convention.
@@ -153,6 +94,12 @@
 (re rules of centralized asset management)
 
 - JFWooten4/gratitude-journal/2025/Nov/29.md
+
+
+
+
+
+
 
 
 > finally feel like I'm on the other side

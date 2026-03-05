@@ -66,14 +66,14 @@ By the ned of the mont I was exlponncig my options, isnnsside at least
 
 
 
-I tried to give her one last change in Oct. By then it was gotting clleanr that I courldnt do my job with her. I know it was incompaTible when I coulldnt write boaund the SDEX for at least two weeks.
+I tried to give her one last change in Oct. By then it was gotting clleanr that I courldnt do my job with her. I know it was incompaTible when I coulldnt write boaund the SDEX for at least two weeks. ("How can I write about free markets when my own living situation traps me in conformity?" Nov/10 and 3 days after deciding to leawe "I hope she finds what she’s looking for in life.")
 
 This was likely the taill end of Rand; when I started realiving Id been ignoring bmy own dosires
 
 
+By Novewbre I.d.'. had enought pyostiitwe eprences with online frineds to build up confidence  in the fandom as a safe landing pad
 
-
-
+I'd stopped boraiganing and enterethd the Depression pdhase. I started to understand what I needed in a prater - a lra thde Nov 10 ppost which was also reaally her lasnt chance 9shared with her)
 
 
 
