@@ -1,7 +1,16 @@
 ---
 title: "🏍️ Title at the End"
-date: 2026-03-20
+date: 2026-03-10
 ---
+
+my last policicar lhtip is the need to try and strategirally iafl as  means of wearnig down the boecorcracy
+
+some paper on thes
+
+
+
+
+
 
 
 ### quote takeaways
