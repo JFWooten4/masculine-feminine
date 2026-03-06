@@ -62,9 +62,12 @@
     font-size: 1.1em;
   }
 
-  sup a[data-footnote-popup] {
+  .footnote-popup-host {
     position: relative;
-    display: inline-block;
+  }
+
+  .footnote-popup-host > a[data-footnote-popup] {
+    display: inline;
     cursor: pointer;
   }
 
@@ -87,9 +90,9 @@
     z-index: 999;
   }
 
-  sup a[data-footnote-popup]:hover .footnote-popover,
-  sup a[data-footnote-popup]:focus .footnote-popover,
-  sup a[data-footnote-popup].is-open .footnote-popover {
+  .footnote-popup-host:hover .footnote-popover,
+  .footnote-popup-host:focus-within .footnote-popover,
+  .footnote-popup-host.is-open .footnote-popover {
     display: block;
   }
 
@@ -123,10 +126,11 @@
     function initFootnotePopovers() {
       const refs = Array.from(document.querySelectorAll('sup a[href^="#fn:"]'));
       if (!refs.length) return;
-      document.documentElement.classList.add('footnote-popovers-enabled');
+
+      const hosts = [];
 
       const closeAll = () => {
-        refs.forEach((ref) => ref.classList.remove('is-open'));
+        hosts.forEach((host) => host.classList.remove('is-open'));
       };
 
       refs.forEach((ref) => {
@@ -144,19 +148,27 @@
         popover.className = 'footnote-popover';
         popover.innerHTML = clone.innerHTML.trim();
 
+        const host = ref.parentElement;
+        if (!host) return;
+        host.classList.add('footnote-popup-host');
+        hosts.push(host);
+
         ref.setAttribute('data-footnote-popup', 'true');
-        ref.appendChild(popover);
+        host.appendChild(popover);
 
         ref.addEventListener('click', function (event) {
           event.preventDefault();
-          const willOpen = !ref.classList.contains('is-open');
+          const willOpen = !host.classList.contains('is-open');
           closeAll();
-          if (willOpen) ref.classList.add('is-open');
+          if (willOpen) host.classList.add('is-open');
         });
       });
 
+      if (!hosts.length) return;
+      document.documentElement.classList.add('footnote-popovers-enabled');
+
       document.addEventListener('click', function (event) {
-        if (event.target.closest('sup a[data-footnote-popup]')) return;
+        if (event.target.closest('.footnote-popup-host')) return;
         closeAll();
       });
 
