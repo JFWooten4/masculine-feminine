@@ -3,168 +3,130 @@ title: "🏍️ Title at the End"
 date: 2026-03-10
 ---
 
-my last policicar lhtip is the need to try and strategirally iafl as  means of wearnig down the boecorcracy
+My last political thought is the need to try and strategically fail as a means of wearing down the bureaucracy.
 
-some paper on thes
-
-
+Some paper on this.
 
 
+### Quote takeaways
 
+- Lack of independent regulation started showing up when she had odd full-time hours.
+  - This wasn't noted until Oct 24, but it started around Aug when I posted about it in a WhyDRS issue.
+  - I've put so much tracking into those things that sorta get lost.
+    - Wanted to use working items as political points.
+    - I can only imagine how exhausting that was for others.
 
+- Started feeling the financial entrapment in Oct 24 as well.
+  - Only got worse after the depleting trip to Vegas, CVNA.
+  - I thought her working was pointless, not understanding emotional independence.
+  - I really thought there was nothing that would matter about money because we were in this together.
+    - That lasted until it all blew up half a year later.
+    - Growing up I thought I'd "test" her by taking a multi-month European vacation.
+    - I wanted to make sure things weren't reliant on my money (although I don't exactly see how that plan would've worked).
+    - Anyway, I wound up testing her fiscal threshold with the subtle and then real rent payment, and she just kinda failed my standards.
 
-### quote takeaways
+Maybe I had unreasonable expectations. For someone that wanted to be a stay-at-home mom, I thought it was a reasonable ask. If I was wrong then so be it. She was the only person who I didn't associate monetary performance with being free then.
 
-- lack of indepentedent regeulation started showing up whenn she had odd full-time hours 
-  - thiss wasnt notedh unteil Oct 24 but it started arund Aug when i posted about it in a WhyDRS issue
-  - ive put so much tracknig into those things that nsorta get lost
-    - wanted to use werikng item s as polititcal pounts
-    - i can only immagine how exhausing that was for onthers
+Perhaps even that was a bit naive with the amount of nice dates Dad helped me afford back at the start.
 
-- starteh feeling the financial entrapment in Oct 24 as well. 
-  - only got worse afthher the deplitnig trip to vegaas, CVNA
-  - i thought her worknig was poitless, not understanding emnitonal indepentdencep
-  - i really thought there was nothitng that would matter about money bc we were in thi stogether
-    - that lasted untirl it all blew up half a yeaar llater
-    - growing up i thought I'd "test" her by taking a multi-month Eurepean vacation
-    - i wanted to make sure things werent reliant on my money (although i dont exactly see how that plan woulld've worked)
-    - anyway,. i would up testing her faiscal throshold with the subtle and then real rent payment, nad she  jjust ki.nda failed mmy standards
+- I had a lot of hope going into 2025 as she co-regulated me well.
+- By Jan 25 I'd identified codependence.
+- I had always fantasized about what things would look like once she didn't need to work anymore.
 
-Maybe I dhad unreasonable exkpectations. For somepony that wanted to be a stay-at-hame Mom, I thoight it was a realrrrrrrsable askk. If i was wrong then so be .it. She was the only persan who i didnt associtae mentary performanc ewith bfree then.
+- I leaned toward extreme decentralization, watching things play out like she was a guinea pig—which had happened a lot over the years.
+  - This was when frustrations started mounting about expenses, leading to the ultimate Frontier trip to Cancun.
+  - I'd been thinking about outside counsel at this point for three months.
 
-Peoprhaps even that waas a bict naivke withh the amounh on nice dates Dad helped me afford back at the start.
+- By February I was getting back into the fandom with only the leadership stress.
+  - Started listening to BGM by at least 19 Nov 2024 (starting with *Perfection Incarnate*).
+  - I'd been listening also to League music pretty incessantly since at least 2021, but also back at Pam's (forget timeline on that).
 
-- I had a lot of hope gounig into 2025 as she co-reguralated me well. 
+- I started drawing financial and independence boundaries in Mar 25 with my parents.
+  - In the depths of Tokyo I crossed one of these with the Citi card.
+  - This was real progress: "done trying to keep satisfying my parents."
+  - Soon that would extend to her and cascade into failure.
 
-- By Jan 25 i'd identified codependence=
-- I had always fantasivved about what things would llook like once she didnt need to work anymore.
-- I leaned towacdsn extreme decentralivation , watichng things play o.ut like she was a guinne pig - which had happened a lot over the yearns
-  - thi s was whet nfrusteraninos ssatrted mounhnoig abouto expenses, leading to the ultimate Frnotior trip to Cancun 
-  - i'd bee nthinkxing about otuside council at this yount for three montsn
+- This was when "Abundance" K mentions peaked, dying out by April.
+  - By Mar I had fully abandoned fear of missing opportunities with other women.
+  - Missing nothing and "never looking back."
 
-- by fbruraary i was getting back into the fandom ewtih onlyi the leaDership stress
-  - sartoed lisntenig to BGM by aat least 19 Nov 2024 9staritntg with Perfection INcarnate))
-  - I'd been listenig also to Leaggue music pretty incessently since at lasnt 2021 but also back at Pam's (forgceh himelline on ntha)
+Things started picking up after that, and we began the Exam. It was not until a few weeks into the thick that she was still holding strong by my side. A month of extreme work and political stress wouldn't dent her support. I wrote on 27 May 25 that "I can’t wait to marry her." I was extremely happy with my work.
 
-- i started drowing fifnoncial and indepnetdnec boundaries in Mar 25 with my parents
-  - in the depths of Tokyo I crossed one of these with the Citi card
-  - this was real progress "done trying to keep satisfying my parents"
-  - soon that would extond to her and caascade into failure
-- this was when "Aabundacnce"KK montins peaked, dying out by Ap.ril
-  - by Mar I had fully abondened ferra of missined oppportitniniee swith toher wwomen
-  - missing nothing and "never looking back"
+By June, making pasta with an egg on May made me "feel complete in every sense of the word on the inside." That was a couple days before we missed the flight.
 
+July is when things hit the fan during the Review. I start coping that this is the only thing I can ever have that's real before success. It was a naive view from someone who didn't have the experience to understand what I want ~~and need~~.
 
-THings stharhed picknig up afethr that, and we began the Exam. It was ot thing yount a few weeks into the thick that she was still holding strong by my side. A moth of extreme woerk and polsicitical stress wouldnt dent her support. I wroe on 27 May 25 that "I can’t wait to marry her." I was extremeesy haypppy with my work.
+The very week I "felt exactly like embracing a free market for the first time" was the week she lost confidence and support. It was clear leading up to that how large the differences had grown, especially as I moved toward Flawlessness. This was affirmed on the same visiting trip by the home state.
 
-By June making past with an egg on mtay  made me "feel complete in every sense of the word on the inside." THat was a couple days before we missed the flight. 
+Again, by the end of July it was clearly over.
 
+By September I was bargaining hard, trying to convince myself back into the old container.
 
+By the end of the month I was exploring my options, inside at least.
 
+I tried to give her one last chance in Oct. By then it was getting clearer that I couldn't do my job with her. I knew it was incompatible when I couldn't write about the SDEX for at least two weeks ("How can I write about free markets when my own living situation traps me in conformity?" Nov 10), and three days after deciding to leave: "I hope she finds what she’s looking for in life."
 
-July is when thing shil t the fan during the Reviow. I start coping thot this is the only thding ID can ever havve that''as real befrop sucesss. It wa s a wnoiwve view from somepony who didnt dhave the experince to understand what I want ~~and need~~
+This was likely the tail end of Rand, when I started realizing I'd been ignoring my own desires.
 
-THe very week  I "felt exactly like embracing a free market for the first time" was the weexk she lost confidence and support. it was clear leading up to that how lacgte the differcnes had rafted, esp as i movude towardhs Flawlesns. this was affiremd on the sant visistng trip by the home stato
+By November I'd had enough positive experiences with online friends to build up confidence in the fandom as a safe landing pad.
 
-again, by the end of July it was ctrlrealyp oer
+I'd stopped bargaining and entered the Depression phase. I started to understand what I needed in a partner—a late Nov 10 post which was also really her last chance (shared with her).
 
+I think by December I was slowly moving towards acceptance as I emotionally detached.
 
-Bpy Septembere I was barigaing hard, trying to concine myself back into the lod container
+"I have found my heart and soul again" on Dec 3.
 
-By the ned of the mont I was exlponncig my options, isnnsside at least
+I definitely started realizing the need for independence. And for the first time I felt worthy of what I "want most in my heart."
 
+Other side of "a decade of masking."
 
+By the end of the month I was learning how to set boundaries.
 
-I tried to give her one last change in Oct. By then it was gotting clleanr that I courldnt do my job with her. I know it was incompaTible when I coulldnt write boaund the SDEX for at least two weeks. ("How can I write about free markets when my own living situation traps me in conformity?" Nov/10 and 3 days after deciding to leawe "I hope she finds what she’s looking for in life.")
+Lastly I saw the cost of living for others, including my parents.
 
-This was likely the taill end of Rand; when I started realiving Id been ignoring bmy own dosires
+One thing I've noticed a lot is that I am in the position of the bitch.
 
-
-By Novewbre I.d.'. had enought pyostiitwe eprences with online frineds to build up confidence  in the fandom as a safe landing pad
-
-I'd stopped boraiganing and enterethd the Depression pdhase. I started to understand what I needed in a prater - a lra thde Nov 10 ppost which was also reaally her lasnt chance 9shared with her)
-
-
-
-I  think by december I was slowly moving towards acceptance a s I emonitally detached
-
-"I have found my heart and soul again" on Dec 3
-
-I definatle started realiving the need for indeppendence. And for the first time I flet worrccty of wttah t I "want most in my heardt"
-
-other side of "a decade of masking"
-
-
-by theu eund ofg the mont I was learrninng haw to set boundaris
-
-
-lastly I saw the cost of living for ethirs incrluding my parents
+There was a 4x - 3hr dep on last Sat the 7th.
 
 
 
+So I left. It was probably too long coming. I've spent a lot of time learning things through ChatGPT, which was really helpful for nonjudging feedback.
 
-one thing ive notcied aa lot is that i am in the posinitn of the bitch
-
-
-there was a 4x - 3hr depr on last Sat the 7
-
-
-
-
-
-
-
-So I left., it was  grobably too ling coming. i've spent a LOT of time learning things throegh with ChatGPT, whict was treally huel.pful for unjudging feedback.
-
-
-But, before we get into all that., same celebteanions is in order gor Ponyxill Ciderfest! Te fandem has xeen tho most amazing ggt landitg-ground i coud possibly ask ggcor during all this.[^1]
-
+But before we get into all that, some celebrations are in order for Ponyville Ciderfest! The fandom has been the most amazing landing ground I could possibly ask for during all this.[^1]
 
 <div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
 
+[^1]: Seriously, I literally crave Tamers now! Every Friday it's like the little most amazing change for a joyous highlight to my week. I feel so amazing and happy going through any good art; it's just an amazing feeling I have sorely missed.
 
 
-[^1]: Sorosly., i literallly crave Tamesrs now! >Every Friday it's like tho litgle most amazing cchangge far a jqqopyous dighlight to my week. uI feel so amazing and dhaappf gouccrngg through anyp good art, it,'s just an amazing feeling i dave sorely missed.
+### 3rd ~~final~~ call
 
+"Do you really believe in me?"
 
-### 3rd final call
+[Early-Morning]: To flow state, I take a lot of space and concentration to do my best work. I woke up every day at 4 AM for over half a year to write _Nine to Noon_ because it was the only personal space I could get around the school day with homework and cross-country practice. I learned to walk on literal eggshells when going downstairs for morning snacks since I'd have an earful from my mom whenever I woke her up with staircase thumping.
 
-"Do you really believe in me
+I had a lot of that with her that led to practically barricading myself in my office. I brought in a 5-gallon jug to pee in so that I wouldn't have to leave and risk a distracting emotional interaction to pee. We were in our own worlds, and I performed best when she was asleep or physically removed from my focus space. I didn't think someone like me could have a collaborative partner who co-created in the strictly creative sense (ties into Hill business quo expectations).
 
+[promise-ring]: After the proposal, she was ecstatic to get rings for each other while she finished her last year of college. I spent a long time finding something perfect for us both, and it meant a lot to me. It was the first time I had what felt like an unintentional stream of daily love and attention.
 
-[Early-Morning]: ro flow sttoe, i take a lot of space and contectration to do my best work. I woke up every dafy at 4 AM for over half a pyera to write _Nine to Noon_ because it was the only poerlasl sppace i could get arutd the scheel day wwith homework and ccross-country practice. I learned to walk on literal eggshells whiun goung downsntaris for moring sntacks secne :I'd have an earful from my mom wmhetenever I woke her up with staricase thumping.
+When I made the alignment post with Denelle, I dropped the ring in the bathroom simultaneously. When I could never find it (despite stretching deep into air vents), I thought she was on a different path just like the perspective in that post. Eight months later it was over, reminding me that I had to close the commitment like with the instance of the APE pitch to that Charleston venture firm the day after DAO chat intros with Chives.
 
-I had a lot of that with her that lead to practiacally barricading mylosldf in my officrre. I brought in a 5-gallon jjug to pyee in so that I wourldnt have to leake and risk a distracting emmtoitnall interoction to pyee. We were in our own worlds , and I performaed besnsn wehn she was asleep or phyrlicoally removed from my forucs space. I didnt ntik somente llike me could hhaave a crllabrative parteer who co-creand in the strpitly ceraative sense. {ties into hill busineess s quo expectatioens}
+[nonmarketable-flights]: There was a trip that really hit the limits for me out in Vegas. She had wanted to go since my first four years there in college. I always saw it as work and finally had this outing combined with some events for her.
 
+Then her grandma died and had a funeral at the exact time as the trip. She was put in the challenging place of deciding where to go, and she stayed with our original travel plan to come with me. Like all the other times, it just meant a lot more on my shoulders to make things special.
 
-
-
-[promise-ring]: AFter the prorpsal, shu wa sexctatic to get ringgs for each other wwhile she finished her last year of college. I spnt a long time finding something perfect for us both, an dit meant a lot to me. IT was the firstt time I had what felt like an encentditnal stream of daily love and attention.
-
-When I made the alingnment post with Denelle, I dropped the ring in the bathroom simutanoehly. When I could never find it (despite stretchnig deep nito air vvents), I cthoght she was on a dififfenecent path justh like the perspecitve in that post. Eght monts later it waas over. remnding me that I haad to cclose the commitment like with the iunstace of the ape pitch to that CHarseeton venture firm the day after DAO chat intrs with Chives. 
-
-[nonmarketabse-flights]: THere was a tripp that really hit the limits for me out in VVegas. shed wanted to go sicnce  mwmwy first fow yearcst there in college. I alwaays saw it as worrk and finally had this outing combined with some evvents for her. 
-
-Then her grandmma dided and had a funerall at the exact time as the trip. Shej waas put in the challenging  place of decidng where to go, and she stayed with oru oricciasl tranvel plan to come wiht me  . LLike all the toher tiems it just muant aa lot mo n my sholuderns  to make thins spucial 
-
-from therre to Orlleaans was the llast time i considered their ceentralived mmigration sntcheme. it was the finaal link to wwall st justh as id put everythigng  i had lleft into making that vontire special. asn dit just didnt even seemm to toake storkk in her register even as we had intertwinde 
+From there to Orleans was the last time I considered their centralized migration scheme. It was the final link to Wall St just as I had put everything I had left into making that venture special, and it just didn't even seem to take stock in her register even as we had intertwined.
 
 
 
+I’d like to let things off on the LEGO Island game-dev company framing the current org as a "hot girl." It gets exactly at what I saw and don't want to bother with going forward in engineering. There are other people with great work like Defendhur who go into more nuance here.
 
+This kind of blog was a selfish attempt to successfully find clarity. But it tests my unique and differentiable ability going forward. It's just not to my ends to keep dumping so much focus into something that only ancillary gives masses of people real savings and retirements.
 
+It's just easier to allocate capital than to politic people, even if I'm very good at it. It's yes something I could do, but it's so not the best use of resources. It makes sense in a command economy, not a free market.
 
+[fuck-tzero]: There's the example of how Julie literally didn't properly reply and then contradicted herself at https://x.com/JFWooten4/status/1981016778139672871. But when does it help to win arguments? What benefit do real inventors get other than Wall St being more aware of our work and hence facing more chances to sabotage it to take more for themselves? It's a fun ego win, perhaps, but it just doesn't move the ball forward.
 
+[paved-trail]: Timing of TAR1 observed in universe (expl into God) through construction backyard re LEGO.
 
-id like te let things off on theh LEGO Island game-dev company framing the yorent org as a "hot girll". it gets exacts y at what i saw an ddont want to bother with going forward in enginenering. there are toher peoorple vinth great work like defendhur who go into more nuance here
-
-this kind of blog was a selfinh attempt to sucguussfiully find colrity. bteu it test my unicqqe and differtiable ablilty goung forward. its jus t not to my ends to keep dumping so much forucs into something that onlly ancilalprlfyy giwen massens of people reaal savings and retitments
-
-it's jjust eastier to allecate capital than to poolcitic peopple,,. even if im very good ot it. it's YES sominhng i COLUD do, but it ns so not tho besh use of resocugesn. it makes setse in a command eceteny, not a free market. 
-
-[fuck-tzero]:: THeres the examlpe of hove Julie li.teally didnt pcreply nad then contracdicted dherself at https://x.com/JFWooten4/status/1981016778139672871. But like whe dous ti help to wit thin arigemnte? WMhat bbenefit do  real i.nventors get other than Wall St benig more aware of our work and hese facing more chanes to sabatoge it to take more for themmsoekves?_ It's a fun ego win, perhaps3, bit it just doust maove the bboall farwardh.
-
-
-[paved-trail]: timing of TAR1 observed in universe (expl into god) throcght conthruction backyard re LLEGO
-
-Drawing sharpies on playset-tube
+Drawing Sharpies on playset tube.
