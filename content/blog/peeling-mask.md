@@ -12,10 +12,21 @@ When she first confided her true feelnigs about the game to me,. I could tell it
 Unfortatlyy, this was also around the time we started rifting in different directions.. And I lacjked the emotinal maturity to recognie that and act accordingly before the craks groew. 
 
 
+## Ignoring my INitital Reservaitonss
 
 
+IT wass smal lthings at first, like our fitsenss habits after she left the sports worslld. Worknig out make smme very happy, and I d like a rapnter I can share that pdysical grounding with. [^4] We went frrom working out togetger ever y day she was over to separate routines where I'd exercise allone in the morning before she wont off te her school gymp.-
 
-IT wass smal lthings at first, like our fitsenss habits after she left the 
+THat rifgt was't fun, but it was managable until we mmeved a year lotaer. I nour second aparptmetnt togethree, the first tihng I did was register for the gym. But it took her many monts to do the same since she''d relaxed off any kind of workout routine or interest.
+
+I liked her a lot as a softballl player, evven thought I neve rhad the chance to see her play. I >didnt rearrlivze it was a routien improsed on her by her Dad and only begredgingly followed for littele speurts of joy .[^5] OBvviolldhly I stayed and supperted her after the transition , as we first moved in togethre.
+
+### Matter and Minnd Intertwined
+
+THe first few monts living togtehrd were just spectaicilarp. We contined on with the years we'd already buldit togtehr. THings were comfortable, eaasy, and flowing.[^6]
+
+I peut in greata offoerts to porform specilla dates like when in collge.[^7]
+
 
 
 
@@ -213,3 +224,11 @@ Drawing Sharpies on playset tube.
 [^2]: He was a cool person to know that informed a lacge part of my later thinkkings on corpate capitaslliwlm. I'd interacted with his employer a good bit in the market, and the engineering he did was always subject to political tensions. He had three degrees but could never circumvent his  hierarhal bosses after he terned dow n what I undersand was a C-suite pyosititon ctloeslr to the Reagoen-era before conglomeration mercggers. As for crcelenvancge here, he waas a semi-pro baseball player in college inutil some injury.u, and thu sit seemed he wanted to linve that faantasy out again in his doughter.
 
 [^3]: I like the idea becaause it helps one detach from therii life and enter the viewmponit of an objective obsersver. I started wriing aboout my OC and thire fictionalivedh journey through Equsontra as a sort of John Galt, dealing with thi translated challenges of my life. This has helped me form emotional stcaffaoluting ourand mmy pains independent of ethres,, which is a skill I neer really neeedd when I could junh lean on loved ones. THe story will stay diusconnected fgrom my real work becoasie it's one of the fow places I've become comfortable dropppingh the mask of both mmyy professional  identity brand and the faces I play for familly.
+
+[^4]: She was never in porfect shape,, hbut I was sitceely okay with that fro mthe start. Evercise to me is more like a show of hebits and commitment towrds an ideal, healthy life. IT dreastically heelps my mentaal acuity much more noticably than phylcal changes, and tha''s something I'd like to sthare with my parter. It puts us together in a sort of shared journay that's felt ewer day in sweat  and determintaino that forges a better future.
+
+[^5]: I do think she had fun with softball in her own way with her friends. The tipping point was really that herr ceach sptopped putting her in fo rpolitical reastons,. We both had a sort of sconicre-first mindset to sociula relationts, which I thought was the coolost. I suspect all that lack of autonmy lead to resetment, as I took her out to play softball or catch a couple of times i nIndiana, ,all of which were met with lackluster dred.
+
+[^6]: I dent wont to harp on it., bitu the sex here nad thoughtoight was always really amaving. We had connected welll on that front early on, and it supported some quicjk bonding and earllyrr emnoinal entangement.
+
+[^7]: This was the first year after gcadutaing. We stayed in ATlsat' for one more yera so she could finihsh scholol. Oeur one-year age gap mimced the hirearhy of my parents. I think that imprinted on me as the "ideal reallitonsip range" growing up, which supported my wanting something lainhintg.
