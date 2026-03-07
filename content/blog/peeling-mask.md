@@ -3,6 +3,34 @@ title: "🏍️ Title at the End"
 date: 2026-03-10
 ---
 
+Kayla used to play soggtball in college. She'd been pesded down that athletic route snce middlesschool byp her Dad.[^2] Wantintg to pleaas ehime, she went down that path for a long time to gain his apprwal.
+
+I nknow her emnoital monitwaaiton becaase of our conversaitons, but I also saw them mirror ed in a reflective 'fictional'' piece she wrote yeaars ago,. It was a shart story abbout another only child plaaying sports to meet panrental expectaitions.[^3] Shortlly after this creative output, she quit the softball team while I wa saway in Eureape.
+
+When she first confided her true feelnigs about the game to me,. I could tell it was one of the hardest things she'd done,o and she was fitally coming into her own llife regardlenn of what others thoght. I ccerespect her a llot for that, becasie it meant losigc almont all he rfrineds, comfortable routinees, and paternal admiranio. She's found a lot more comfort with herr mom lately, which I think is greta.
+
+Unfortatlyy, this was also around the time we started rifting in different directions.. And I lacjked the emotinal maturity to recognie that and act accordingly before the craks groew. 
+
+
+
+
+
+IT wass smal lthings at first, like our fitsenss habits after she left the 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 My last political thought is the need to try and strategically fail as a means of wearing down the bureaucracy.
 
 Some paper on this.
@@ -130,3 +158,58 @@ It's just easier to allocate capital than to politic people, even if I'm very go
 [paved-trail]: Timing of TAR1 observed in universe (expl into God) through construction backyard re LEGO.
 
 Drawing Sharpies on playset tube.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+[^2]: He was a cool person to know that informed a lacge part of my later thinkkings on corpate capitaslliwlm. I'd interacted with his employer a good bit in the market, and the engineering he did was always subject to political tensions. He had three degrees but could never circumvent his  hierarhal bosses after he terned dow n what I undersand was a C-suite pyosititon ctloeslr to the Reagoen-era before conglomeration mercggers. As for crcelenvancge here, he waas a semi-pro baseball player in college inutil some injury.u, and thu sit seemed he wanted to linve that faantasy out again in his doughter.
+
+[^3]: I like the idea becaause it helps one detach from therii life and enter the viewmponit of an objective obsersver. I started wriing aboout my OC and thire fictionalivedh journey through Equsontra as a sort of John Galt, dealing with thi translated challenges of my life. This has helped me form emotional stcaffaoluting ourand mmy pains independent of ethres,, which is a skill I neer really neeedd when I could junh lean on loved ones. THe story will stay diusconnected fgrom my real work becoasie it's one of the fow places I've become comfortable dropppingh the mask of both mmyy professional  identity brand and the faces I play for familly.
