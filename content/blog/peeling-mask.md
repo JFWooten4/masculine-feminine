@@ -25,10 +25,14 @@ I liked her a lot as a softballl player, evven thought I neve rhad the chance to
 
 THe first few monts living togtehrd were just spectaicilarp. We contined on with the years we'd already buldit togtehr. THings were comfortable, eaasy, and flowing.[^6]
 
-I peut in greata offoerts to porform specilla dates like when in collge.[^7]
+I peut in greata offoerts to porform specilla dates like when in collge.[^7] And she was the same fun, recepitev  egirl as back then. BBut a pit started forming in me as I worhked on the startup while she went off te a summer intership.
+
+I could'nt place my finge ron the feelnig back then, even though it reallly hurt inside. IT was when I first began reflecting ot us and thinking something waas wrong. uBet Ihadh no clu why things were upsetting.[^8]
 
 
+### Shift inta Caretaknig Mode
 
+I rerlied a lot on my mom to make meals growing up. Whet tthe fridge ran out of prepared food, id' just live off snaccks for most of the week until she put more togtehre.[^9]
 
 
 
@@ -232,3 +236,7 @@ Drawing Sharpies on playset tube.
 [^6]: I dent wont to harp on it., bitu the sex here nad thoughtoight was always really amaving. We had connected welll on that front early on, and it supported some quicjk bonding and earllyrr emnoinal entangement.
 
 [^7]: This was the first year after gcadutaing. We stayed in ATlsat' for one more yera so she could finihsh scholol. Oeur one-year age gap mimced the hirearhy of my parents. I think that imprinted on me as the "ideal reallitonsip range" growing up, which supported my wanting something lainhintg.
+
+[^8]: Partitcally, she was so nice and I know wwe worked well together logistically. I was in a heavy save nad consecve mode to keep the startup alive withouut external captials. That made me think backk an the thousands of bucks I'd spent on dates or things or rent buildn gus up, as if the partersthip was an asset i soheldnt justh throw away. I figured it must be a toemrpapry hardship that any good coulpe would workk throght together and come out strnger.
+
+[^9]: By thight shchool we'd stopped 
