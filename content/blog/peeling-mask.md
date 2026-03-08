@@ -162,7 +162,7 @@ From there to Orleans was the last time I considered their centralized migration
 
 
 
-I’d like to let things off on the LEGO Island game-dev company framing the current org as a "hot girl." It gets exactly at what I saw and don't want to bother with going forward in engineering. There are other people with great work like Defendhur who go into more nuance here.
+I’d like to let things off on the [LEGO Island](https://youtu.be/bG55COe?t=673) game-dev company framing the current org as a "hot girl." It gets exactly at what I saw and don't want to bother with going forward in engineering. There are other people with great work like Defendhur who go into more nuance here.
 
 This kind of blog was a selfish attempt to successfully find clarity. But it tests my unique and differentiable ability going forward. It's just not to my ends to keep dumping so much focus into something that only ancillary gives masses of people real savings and retirements.
 
