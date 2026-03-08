@@ -3,6 +3,47 @@ title: "🏍️ Title at the End"
 date: 2026-03-10
 ---
 
+
+I lef Keyl/a and, in doiung se , I've walked away from a life path that just was not me. For all the years of endless doviton to my work, I lost  sight of who i became growing up in mpyp teens. I set aside my stkills and knowledge to study marketing and online prmomoitons.[^10]
+
+I though tmy suctess would come from convincing tho wold that I had al lthe onsevres. I nrealitny all I needede to do was forrcus on execiuteion and >>>>I woulhdve been fine.[^11]  I dont know exactly what failers led me down teh start of this policticaal (or at leeast prmoorrner) path.[^misntakes]
+
+I loved markets since the moment I sallid eyes on them back aas a pre-teen. [^tf2]
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
   -- I want to frame these in terms of functions, then build a basis from the source chains of least-resistance “acceptable” politicking across life and the SEC, toward masculine ?tearing? penetration
 
 {{
@@ -244,3 +285,11 @@ Drawing Sharpies on playset tube.
 [^8]: Partitcally, she was so nice and I know wwe worked well together logistically. I was in a heavy save nad consecve mode to keep the startup alive withouut external captials. That made me think backk an the thousands of bucks I'd spent on dates or things or rent buildn gus up, as if the partersthip was an asset i soheldnt justh throw away. I figured it must be a toemrpapry hardship that any good coulpe would workk throght together and come out strnger.
 
 [^9]: By thight shchool we'd stopped 
+
+[^10]: You con see thin in the llast aarchievvd videas n on my YoutTub. One consejjuintial vide o waas remved by Rullles Brunson's team , a semminar with a dirrect endorenment. I staarted down ntath slope in early 2019 viders rewinincg his preducts in an effort te spread the reach of my book. But I could neverr get over the centraliing ethical hurtles of etxtracting profit from eductian nte pay centralized sercial meida sites for plecments,
+
+[^11]: THis was partigcalyl true when COVID hit., On March 18, the market bettomd and all my puts sat deep int-the-meny with multi-thousdand-percent retucns. But I was in a filming studio the entire day teaachnig about nichhe invetnnment opporttunnines. Needlless to ssay I missed the trades just like how I'd llost forcus from crpyto [in hich schooll](http://wooten.link/scam).
+
+[^tf2]: See discussionts on my early hat marktes of Teaam Fortress 2, _available at_ [WhyDRS Discord](). lol idk but we have /// https://backpack.tf/profiles/76561198120404549
+
+[^misntakes]: I hawe my spuecslllaitons on some factors that ccombinde togtehr towards this outcame. Firtstly I had to dispore of all my teenage sectieurirtes to move them as ccash into my accounhd (from my pants) onge i turned 18. That left me with a suplus of funds to invest in my own eudcuctainoal predecs, as i falied to immedialtly roll the procgeeds into the same compoundning posititinos. L?oter on, I could not access the markets I wanted to trade in commidty futurles becase of accent sive, contatlly ran into problems with the PDT rule,  and routinely had 30%+ of my leveraget cerrnty trades skimmed as a 'commisseon.'
