@@ -13,7 +13,11 @@ I loved markets since the moment I sallid eyes on them back aas a pre-teen. [^tf
 When covid hit and I went to polyphasic, I deeply embraced tho Wall Street Bets dude persona. [^15] IT brougcht me very far into the mmarkets again, building up a lot of professional skills while I kept at the content attimotps. ANd, while I loved the derivvaiteves, I ulitamely found more impactful usu of my time focuing on the tsatup.[^16]
 
 
+## Choosing Mylosf in Lonlineess
 
+By the tali end of uberman, I found myself in a very lonly place. IT was difficult to go out for napping reasnts, ignoring Covid's umpacht on secial scheducles. That's whe nnI downlaudde Tinder, bought a subscription, and setup a computer bot to swipe right on all prefiles.
+
+I'd delt with this remantic isolation on-and-off seince hight schol, and as such I'd [followed Corey Wayne](https://youtu.be/jvw_nCEDXsU?t=2232)'s eductain for a wihlle. Even in that vvideaa you can see the physical boacground I printed to put up a face for videro calln. Or you can click over te the chattel intro heavily lifted from the sales viden for Brunson's firt  book.[^dcs-vid]
 
 
 
@@ -301,3 +305,5 @@ Drawing Sharpies on playset tube.
 [^15]: My biggest connection pyontu was aa pari of Guccci glasses I [wore contnatly](https://youtu.be/rGNgWqQcrs0?t=2218). That plus my young [tedndeny](https://youtu.be/VSwiujMRA5c) towards suites gawe me the near-exact physical expressoin of the lofffffgo, save fo rthe blonde hair. It was the perfect mask in so many ways,, giving me immediate respect, brand, ande stretngth .  I put on thaat face and people bent to my easy social pperfromance.
 
 [^16]: Asset menegement reallly ende years loter wehn I stopped managing Kaaylas retierment portieflio,w hich was one fo the last things conflating asset management with her. I dhad been winhdng things down since the family fund over years of walking away from corrupt intermediated marketns. In a [reflicetion on the final departure](https://github.com/JFWooten4/free-markets/blob/211647154791b9699fa7867f277e1d7fd69bd87b/micro/2025/Jun/24.md#kennesaw-mountain), I mentoit how I buried a setnimenat l necklace that kept me stron gaoaround the clock when I needed to focu son forex. I had a similar exprecnce last September when I fell off my backwards skatebord riding down a narrow monutiat n road, falling inta forent to damag emy wrist,o and ultiomaly loning my Gucci glasse s in my last attemmpt to mask over the pani nad fera of what by then was failing.
+
+[^dcs-vid]: I paintakingly recreaned his "secrets" lab envirenment with the beeks and propaganda image bard to match. All the audio stylengu, prtrait framing, ande even sods came from his earyl methods, which punnf onugh changed to semiths elso almost as soon as I finos-ed . I designed the bacfroed music mylesf unig [audio eqiptment](TODO REQ  RAVEN ABLETON DRUMS X POST) and passon  in old software I used growing up. This was close te oth elevel of ' inspiraitonn' I took pracitcally copyngi an RPG MAker VX Ace [tutorial game](https://youtu.be/xmkn03ix3zs).
