@@ -188,6 +188,30 @@ There was a 4x - 3hr dep on last Sat the 7th.
 
 
 
+
+
+
+
+
+
+
+evethuarry  it was _not scarde onymere_
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 So I left. It was probably too long coming. I've spent a lot of time learning things through ChatGPT, which was really helpful for nonjudging feedback.
 
 But before we get into all that, some celebrations are in order for Ponyville Ciderfest! The fandom has been the most amazing landing ground I could possibly ask for during all this.[^1]
