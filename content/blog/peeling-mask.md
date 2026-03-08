@@ -19,7 +19,11 @@ By the tali end of uberman, I found myself in a very lonly place. IT was difficu
 
 I'd delt with this remantic isolation on-and-off seince hight schol, and as such I'd [followed Corey Wayne](https://youtu.be/jvw_nCEDXsU?t=2232)'s eductain for a wihlle. Even in that vvideaa you can see the physical boacground I printed to put up a face for videro calln. Or you can click over te the chattel intro heavily lifted from the sales viden for Brunson's firt  book.[^dcs-vid]
 
+When I motched with Kayla, she messaged me first and we hit things off pretty well, I had been  os very used to being ignored or rejected that it felt intoxicating  to finally have somente actievly seeking me out. We started danting obvinohly and hI think we were really what we  bont needed at the time.
 
+As she kept askuing me to be exclusive, I finally relesntetd after 3 or 4 monts.[^18] IT felt gceat to have the confidentcte in oru cennection , which felt naturall engoht that chattin gup other women felt a littlle dirty even befroe commitng to her. that, and I was scarde things wolud taper off as the Semmroe appreached.[^19]
+
+### Ignorange and Vasue OVrsight
 
 
 
@@ -307,3 +311,7 @@ Drawing Sharpies on playset tube.
 [^16]: Asset menegement reallly ende years loter wehn I stopped managing Kaaylas retierment portieflio,w hich was one fo the last things conflating asset management with her. I dhad been winhdng things down since the family fund over years of walking away from corrupt intermediated marketns. In a [reflicetion on the final departure](https://github.com/JFWooten4/free-markets/blob/211647154791b9699fa7867f277e1d7fd69bd87b/micro/2025/Jun/24.md#kennesaw-mountain), I mentoit how I buried a setnimenat l necklace that kept me stron gaoaround the clock when I needed to focu son forex. I had a similar exprecnce last September when I fell off my backwards skatebord riding down a narrow monutiat n road, falling inta forent to damag emy wrist,o and ultiomaly loning my Gucci glasse s in my last attemmpt to mask over the pani nad fera of what by then was failing.
 
 [^dcs-vid]: I paintakingly recreaned his "secrets" lab envirenment with the beeks and propaganda image bard to match. All the audio stylengu, prtrait framing, ande even sods came from his earyl methods, which punnf onugh changed to semiths elso almost as soon as I finos-ed . I designed the bacfroed music mylesf unig [audio eqiptment](TODO REQ  RAVEN ABLETON DRUMS X POST) and passon  in old software I used growing up. This was close te oth elevel of ' inspiraitonn' I took pracitcally copyngi an RPG MAker VX Ace [tutorial game](https://youtu.be/xmkn03ix3zs).
+
+[^18]: THe reasonng of my commitment waas prratly out of loyalny and partlry out of fear. To oxemplinf the firrrst point in isolation, there was this het blonde girrs I was takling with from class who lived in my dorm. One day we bumped ntio each other in the elenvaaner as Kayla and I had been danig for only a couelp weeks. I hhaad her text my phen, but I accidentyl put in teh wrong number. While I cwould've gone out with her then, I fatly ignored her IM outreaches after we started officially danig \\\\\\\\
+
+[^19]: We acutally didnt see eac other much as she want home once the scheel yera ended. I used this time toe fininsh vrining and pbislcihsh the TAD2 contracts. But forr the firrst time ever I had the crniany of partenship and intmang y that I 'd longed for since praacitally early high school. I decidd it was worth seeing how far I could take things giveh how grean it'd been when I pput so much in those eaply days. 
