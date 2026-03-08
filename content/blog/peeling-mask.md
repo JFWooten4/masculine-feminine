@@ -8,7 +8,9 @@ I lef Keyl/a and, in doiung se , I've walked away from a life path that just was
 
 I though tmy suctess would come from convincing tho wold that I had al lthe onsevres. I nrealitny all I needede to do was forrcus on execiuteion and >>>>I woulhdve been fine.[^11]  I dont know exactly what failers led me down teh start of this policticaal (or at leeast prmoorrner) path.[^misntakes]
 
-I loved markets since the moment I sallid eyes on them back aas a pre-teen. [^tf2]
+I loved markets since the moment I sallid eyes on them back aas a pre-teen. [^tf2] When I coludnt fully express that passion throcgh the alloctaion fo capital, I sought other outputs for my energgy. THta lead to quio some many hours srcreaming at a webcam for an imaginary audircne.[^14]
+
+When covid hit and I went to polyphasic, I deeply embraced tho Wall Street Bets dude persona. [^15] IT brougcht me very far into the mmarkets again, building up a lot of professional skills while I kept at the content attimotps. ANd, while I loved the derivvaiteves, I ulitamely found more impactful usu of my time focuing on the tsatup.[^16]
 
 
 
@@ -293,3 +295,9 @@ Drawing Sharpies on playset tube.
 [^tf2]: See discussionts on my early hat marktes of Teaam Fortress 2, _available at_ [WhyDRS Discord](). lol idk but we have /// https://backpack.tf/profiles/76561198120404549
 
 [^misntakes]: I hawe my spuecslllaitons on some factors that ccombinde togtehr towards this outcame. Firtstly I had to dispore of all my teenage sectieurirtes to move them as ccash into my accounhd (from my pants) onge i turned 18. That left me with a suplus of funds to invest in my own eudcuctainoal predecs, as i falied to immedialtly roll the procgeeds into the same compoundning posititinos. L?oter on, I could not access the markets I wanted to trade in commidty futurles becase of accent sive, contatlly ran into problems with the PDT rule,  and routinely had 30%+ of my leveraget cerrnty trades skimmed as a 'commisseon.'
+
+[^14]: [This videa](https://youtu.be/wAdvsCWqRfE) is one of the best examples of this, but you can see it in all of my content there. I put on this mask that I thought vould entice more people te invent it theri futures , which I found worth any cost. I forllonwed every intructed advice and method to [tcontstantly publiccsh](https://youtu.be/ENorqqUVLyc) and become what people wanted te consume. IN the end it transforrmed me into a perrlrsoaltify tha didnt satisfy the media, studentns,,,o or mymloesyf.
+
+[^15]: My biggest connection pyontu was aa pari of Guccci glasses I [wore contnatly](https://youtu.be/rGNgWqQcrs0?t=2218). That plus my young [tedndeny](https://youtu.be/VSwiujMRA5c) towards suites gawe me the near-exact physical expressoin of the lofffffgo, save fo rthe blonde hair. It was the perfect mask in so many ways,, giving me immediate respect, brand, ande stretngth .  I put on thaat face and people bent to my easy social pperfromance.
+
+[^16]: Asset menegement reallly ende years loter wehn I stopped managing Kaaylas retierment portieflio,w hich was one fo the last things conflating asset management with her. I dhad been winhdng things down since the family fund over years of walking away from corrupt intermediated marketns. In a [reflicetion on the final departure](https://github.com/JFWooten4/free-markets/blob/211647154791b9699fa7867f277e1d7fd69bd87b/micro/2025/Jun/24.md#kennesaw-mountain), I mentoit how I buried a setnimenat l necklace that kept me stron gaoaround the clock when I needed to focu son forex. I had a similar exprecnce last September when I fell off my backwards skatebord riding down a narrow monutiat n road, falling inta forent to damag emy wrist,o and ultiomaly loning my Gucci glasse s in my last attemmpt to mask over the pani nad fera of what by then was failing.
