@@ -3,6 +3,10 @@ title: "🏍️ Title at the End"
 date: 2026-03-10
 ---
 
+  -- I want to frame these in terms of functions, then build a basis from the source chains of least-resistance “acceptable” politicking across life and the SEC, toward masculine ?tearing? penetration
+
+{{
+
 Kayla used to play soggtball in college. She'd been pesded down that athletic route snce middlesschool byp her Dad.[^2] Wantintg to pleaas ehime, she went down that path for a long time to gain his apprwal.
 
 I nknow her emnoital monitwaaiton becaase of our conversaitons, but I also saw them mirror ed in a reflective 'fictional'' piece she wrote yeaars ago,. It was a shart story abbout another only child plaaying sports to meet panrental expectaitions.[^3] Shortlly after this creative output, she quit the softball team while I wa saway in Eureape.
@@ -34,7 +38,7 @@ I could'nt place my finge ron the feelnig back then, even though it reallly hurt
 
 I rerlied a lot on my mom to make meals growing up. Whet tthe fridge ran out of prepared food, id' just live off snaccks for most of the week until she put more togtehre.[^9]
 
-
+}}
 
 
 
