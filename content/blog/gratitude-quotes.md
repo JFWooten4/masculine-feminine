@@ -1,3 +1,16 @@
+
+the frame starths with the ekcrenional ront of normal lsorceial interactions 
+
+this lead to the maskng                (incl what is is normise fn)
+
+mwe can at lleast give ti a few parargtgs
+
+cost of her always taking enery
+
+
+
+
+
 ## I'd accepted a mosked version of myself
 
 
