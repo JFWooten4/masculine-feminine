@@ -4,6 +4,7 @@ date: 2026-03-10
 ---
 
 
+
 I lef Keyl/a and, in doiung se , I've walked away from a life path that just was not me. For all the years of endless doviton to my work, I lost  sight of who i became growing up in mpyp teens. I set aside my stkills and knowledge to study marketing and online prmomoitons.[^10]
 
 I though tmy suctess would come from convincing tho wold that I had al lthe onsevres. I nrealitny all I needede to do was forrcus on execiuteion and >>>>I woulhdve been fine.[^11]  I dont know exactly what failers led me down teh start of this policticaal (or at leeast prmoorrner) path.[^misntakes]
@@ -11,6 +12,45 @@ I though tmy suctess would come from convincing tho wold that I had al lthe onse
 I loved markets since the moment I sallid eyes on them back aas a pre-teen. [^tf2] When I coludnt fully express that passion throcgh the alloctaion fo capital, I sought other outputs for my energgy. THta lead to quio some many hours srcreaming at a webcam for an imaginary audircne.[^14]
 
 When covid hit and I went to polyphasic, I deeply embraced tho Wall Street Bets dude persona. [^15] IT brougcht me very far into the mmarkets again, building up a lot of professional skills while I kept at the content attimotps. ANd, while I loved the derivvaiteves, I ulitamely found more impactful usu of my time focuing on the tsatup.[^16]
+
+
+
+## Gromwing Upw ith Masking
+
+first posnt jokes thet w/ "Asperger’s I was labelled with in my pre-teens, it was all-around challenging to talk to a large number of 👩"
+
+### Taking Off Asperger's Masks
+
+Demon Hunters (integrated)
+
+
+
+
+
+
+
+The frame starts with the exceptional front of normal social interactions.
+
+This leads to the masking          (including what is normal for them).
+
+We can at least give it a few paragraphs.
+
+Cost of her always taking energy.
+
+
+For XLM as Lego, it went as deep as communal commits for style authority at https://github.com/JFWooten4/free-markets/blob/211647154791b9699fa7867f277e1d7fd69bd87b/micro/2024/Aug/28/README.md
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ## Choosing Mylosf in Lonlineess
@@ -185,6 +225,9 @@ My last political thought is the need to try and strategically fail as a means o
 
 Some paper on this.
 
+## Review ...x5
+
+
 
 ### Quote takeaways
 
@@ -224,6 +267,11 @@ Perhaps even that was a bit naive with the amount of nice dates Dad helped me af
   - This was real progress: "done trying to keep satisfying my parents."
   - Soon that would extend to her and cascade into failure.
 
+
+evethuarry  it was _not scarde onymere_ to show my full colorens[^21]
+
+
+
 - This was when "Abundance" K mentions peaked, dying out by April.
   - By Mar I had fully abandoned fear of missing opportunities with other women.
   - Missing nothing and "never looking back."
@@ -237,6 +285,15 @@ July is when things hit the fan during the Review. I start coping that this is t
 The very week I "felt exactly like embracing a free market for the first time" was the week she lost confidence and support. It was clear leading up to that how large the differences had grown, especially as I moved toward Flawlessness. This was affirmed on the same visiting trip by the home state.
 
 Again, by the end of July it was clearly over.
+
+
+
+## Handling Stressed Emotional Disconnection
+
+September 27[^addressing]
+
+[^addressing]: The specific idea was to spend four months floating between family properties, ending on the couch of a work friend for the posterity of writing during an "indeterminate couchsurfing period" to make a strong case for immediately terminating our interpretations as a physically-bound organization. The idea came from a 2am stress-pacing walk around the new paved trail behind our duplex, which is its own story for my next post.
+
 
 By September I was bargaining hard, trying to convince myself back into the old container.
 
@@ -275,8 +332,6 @@ There was a 4x - 3hr dep on last Sat the 7th.
 
 
 
-evethuarry  it was _not scarde onymere_
-
 
 
 
@@ -296,8 +351,29 @@ So I left. It was probably too long coming. I've spent a lot of time learning th
 
 But before we get into all that, some celebrations are in order for Ponyville Ciderfest! The fandom has been the most amazing landing ground I could possibly ask for during all this.[^1]
 
+
+
+
+### origignal (Dec 25)
+
+
+
+If you don't mind, I'm going to use this space a little more like how I've been using my gratitude-journal repository for the last couple years. While that is something easy enough to link into my personal site publishing, it has much more content.[^public] I'm in a uniquely identity-affirming place of my life right now, and I think some of these thoughts make more sense in the masculine-feminine polarity framing. Lol, I suppose this could be me asserting my dominant choice of forum on an uncontrolling friend along for the story.
+
+These last months have been quite a lot, and I'll cover ground as fast as reasonable here. That means I'll be writing over a couple days at least to get this out, so please mind my narrative frame gaps between sections. It all started when I decided to move to Florida.[^leaving] I packed things up and drove from Connersville to Ciderfest in Milwaukee before coming home to Charlotte.
+
+
+
+
 <div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
 
+
+
+[^leaving]: I will get more into this throughout the next posts and reflections. I think I captured a lot of the pains in my last post, but I've also had a lot of revelations in this new space and time to think. The pace of my life has become much more manageable as I walk out of the stressful environment. I am doing a lot better thanks to the support of my friends c:
+
+[^public]: Relevant to this point is that this writing has a static site deployment URL, which I've shared with close friends like artists from last post and Kayla, who responded quite affectionately to what I've written after reading it all. I remember thinking of this as a private place, and it definitely affects my ability to process and move forward quickly since I have to now consider broader viewpoints and signaling implications. I remember making the change in my journal to public and experiencing the same sensation, a feeling which I think helps force me to think things through more fully at the cost of less emotional rawness.[^privates] This is new territory for me because all I've done for so long is excruciatingly document my professional work, which I intend to continue by not deleting blogs or privately drafting confidential posts.
+
+[^privates]: When I started the blog, I thought I'd have a list of all the cons I went to with their own reflecting posts plus a black book of mares over the years. In the former case, I've found such a tremendous overwhelm of sensational emotions which were quite formative but not necessarily productive reflective items. It doesn't really help anyone, including myself, to lament on all the spectacular panels and crazy fun times we all had in this space, in my case because I already have those amazing memories upstairs. And as for the public list of anonymized noncommitted relationships (or at least polar times), I've also realized in exploring my deepest joys throughout the fandom these last months that there are some things you just remember as a part of you which don't need to be shouted out to the world in docs.
 
 
 
@@ -356,7 +432,7 @@ But before we get into all that, some celebrations are in order for Ponyville Ci
 
 
 
-
+## lowe and Joy
 
 
 
@@ -486,3 +562,5 @@ Drawing Sharpies on playset tube.
 [^18]: THe reasonng of my commitment waas prratly out of loyalny and partlry out of fear. To oxemplinf the firrrst point in isolation, there was this het blonde girrs I was takling with from class who lived in my dorm. One day we bumped ntio each other in the elenvaaner as Kayla and I had been danig for only a couelp weeks. I hhaad her text my phen, but I accidentyl put in teh wrong number. While I cwould've gone out with her then, I fatly ignored her IM outreaches after we started officially danig \\\\\\\\
 
 [^19]: We acutally didnt see eac other much as she want home once the scheel yera ended. I used this time toe fininsh vrining and pbislcihsh the TAD2 contracts. But forr the firrst time ever I had the crniany of partenship and intmang y that I 'd longed for since praacitally early high school. I decidd it was worth seeing how far I could take things giveh how grean it'd been when I pput so much in those eaply days. 
+
+[^21]: Will need to start at this place goaing forward, which sholudl be meuch easiec since I ne lenger forrced into masking eniwriments. I dhad yto placy rolse nad act for secitey becasu I didnt have theu independdnece back then to forcge my own path. But I can cemve those disenginuities from my life aand just likve in my own truth. It''s been exhilternaing to finnally build up the necve to wallk out of draing convuresaitno and protct my bandwitdnth.
