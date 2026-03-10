@@ -31,6 +31,16 @@ As she kept askuing me to be exclusive, I finally relesntetd after 3 or 4 monts.
 
 
 
+#### How things got out of hand during her last year of college, when I first knew
+
+
+> I was so ingrained in pointing out the flaws within the CCP structure that I forgot who I am and what I care about.
+
+- JFWooten4/gratitude-journal/2025/Oct/21.md
+
+
+
+
 
 
 
@@ -67,6 +77,35 @@ When she first confided her true feelnigs about the game to me,. I could tell it
 Unfortatlyy, this was also around the time we started rifting in different directions.. And I lacjked the emotinal maturity to recognie that and act accordingly before the craks groew. 
 
 
+
+
+
+
+#### I'd accepted a mosked version of myself
+
+
+> It can get tough with so much to accomplish, but I've found myself really effectively looking forward and just taking my time to do things, knowing that all I need to do is keep persisting and the path ahead will reveal itself.
+
+> ...it kind of feels like K, where I finally have someone I can just be myself with and not need to continue spraying up this act of business professionalism (in the working case).
+
+> I really appreciate how everyone I know and love gives me the leeway to be myself, with time left in solitude to explore and become my own best person.
+
+> K was super happy to see me back, and the drive home was really nice, getting to hear about how everything went for her the last week. She had a tough time when I was gone, which I notice is a common thing for her
+(after ski trip)
+
+> Can't wait to have fun with her doing such in the immediate weekend, as we prep for her very special birthday and V-Day. Sometimes I think Corey would puke at a few things I do
+
+> We even got to do a whole Mario Party before some more work with LEGOs and painting fun. And what an awesome salad she makes. I'm very thankful she's in my world to make it fun.
+
+- JFWooten4/gratitude-journal/2025/Jan/14.md
+
+
+
+
+
+
+
+
 ## Ignoring my INitital Reservaitonss
 
 
@@ -75,6 +114,27 @@ IT wass smal lthings at first, like our fitsenss habits after she left the sport
 THat rifgt was't fun, but it was managable until we mmeved a year lotaer. I nour second aparptmetnt togethree, the first tihng I did was register for the gym. But it took her many monts to do the same since she''d relaxed off any kind of workout routine or interest.
 
 I liked her a lot as a softballl player, evven thought I neve rhad the chance to see her play. I >didnt rearrlivze it was a routien improsed on her by her Dad and only begredgingly followed for littele speurts of joy .[^5] OBvviolldhly I stayed and supperted her after the transition , as we first moved in togethre.
+
+
+
+
+#### Physical intmacy sead me to believ my full form existed in a box
+
+
+
+> I feel a lot like Twilight getting her wings, and had a nice moment to recollect on such about an hour ago. Was nice to enjoy some childhood pasts and reconnect with early experiences. Damn man, I literally was back to picturing RD when with K earlier today.
+(re Chives and Bur VC)
+
+> That work of pastel equines has influenced me so deeply. It was there for me when everyone else left, and it showed me such a magical better way.
+
+> I remember her doing that all the time back at the tail end of college, and it's nice to get back to that feeling again. She's so feminine, and I love it so, so much. I really hope things are gonna work well when I run out of money in a couple months lol.
+(re interruptive sex)
+
+- JFWooten4/gratitude-journal/2025/Feb/18.md
+
+
+
+
 
 ### Matter and Minnd Intertwined
 
@@ -90,6 +150,26 @@ I could'nt place my finge ron the feelnig back then, even though it reallly hurt
 I rerlied a lot on my mom to make meals growing up. Whet tthe fridge ran out of prepared food, id' just live off snaccks for most of the week until she put more togtehre.[^9]
 
 }}
+
+
+
+### Bulidup of Resentment, Tesionss
+
+
+#### Bending to standach social norcmms, incl comparison to Mom
+
+
+
+> I think K was right about how the real world has lots of people I get to talk to
+(akin to later Mom)
+
+> Today I went through a bunch of old photos with both of us together and just started bawling.
+
+> It was also the first time I've been to church since Italy two years ago.
+
+- JFWooten4/gratitude-journal/2025/Jun/15.md
+
+
 
 
 
@@ -210,13 +290,80 @@ evethuarry  it was _not scarde onymere_
 
 
 
-
+## RCediscoveccing Ponios
 
 So I left. It was probably too long coming. I've spent a lot of time learning things through ChatGPT, which was really helpful for nonjudging feedback.
 
 But before we get into all that, some celebrations are in order for Ponyville Ciderfest! The fandom has been the most amazing landing ground I could possibly ask for during all this.[^1]
 
 <div data-post="https://x.com/JFWooten4/status/1991931881986933088"></div>
+
+
+
+
+
+
+
+
+
+
+## Ciderfest `gratitude-journal`
+
+
+> It’s been so many years of trying to perform for everyone else, and I can’t express just how amazing it felt to finally do things for myself for a change. This weekend of pone was literally unbelievable and life-changing. I have not felt myself in about eight years up until this convention.
+
+> I met this girl and we started chatting on Discord until things escalated to ERP
+
+> I just started dancing with random girls! Omg it was like so fun—hahaha I’ve never felt so free before! We’d just do some back and forth during random songs and then move around to other mares.
+
+> It’s been a while since I had people look at me like that, and even intentionally getting physical with me
+
+> it was fkn unbelievable how good it felt after that dance to completely freak out to this insane music which lately has felt so deeply bound to my soul’s desires. I literally felt like a different person on the moon by the end of that set, it was so fkn cool.
+
+> this was sincerely the piece I’d been ignoring and missing all these years
+
+> I just got to unshamely and greedily be myself for the first time.
+
+> I appreciate that I am given independence and not recognized by anyone here... I’ve had this thing for a very long time where I concern over that Russian plant thing where they have a really hot woman target a successful guy... I thought just having Kayla with an affirmed strong base would be the answer to that, but it was an exceptionally centralized viewpoint.
+
+> I’ve particularly enjoyed dancing with my eyes closed, it feels connected to my subconscious and just lets me think without acknowledging anyone passively. Again with the ignoring cameras and just being unfiltered... I just want to express my own feelings in motion.
+
+> The fren in the news shared sticker that reads “on top of the world” with care package and Apple Bottom, and that’s really how things felt as they finally died down in the end.
+
+**
+
+> I have to also thank the intensity of the DEX documentation work, because without that—none of this would’ve happened. The SEC review primed the pump and got me to the breaking point, but it was the necessity of completing the DEX docs which pushed me over the edge. Once I realized that I couldn’t do what I needed to do (to get to my goals) with that surrounding, I was able to make the tough call with the most amount of clarity one has in something like this.
+
+**
+
+> I met her 19-yo daughter Sara who idk like yeah she was hot whoopie. My type? Lol not really. No clues about the fandom or even esports, which was like damn. The world and even primal parts of me expect myself to rocket towards that, but like I just feel absolutely nothing and couldn’t care less... (i) feels a little exploitive to bring someone like that into bed? (ii) not intellectually stimulating to continue requesting information and (iii) unprogressive towards my objectives to engage in such short-term behaviours.
+
+[possibly my first time having standards]
+
+> I want to build something real and, while I’m happy to entertain limited family requests, I need my own space and relationships to do so well.
+
+[got that space in FL]
+
+> I can’t go back. I can never go back.
+(re rules of centralized asset management)
+
+- JFWooten4/gratitude-journal/2025/Nov/29.md
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 [^1]: Seriously, I literally crave Tamers now! Every Friday it's like the little most amazing change for a joyous highlight to my week. I feel so amazing and happy going through any good art; it's just an amazing feeling I have sorely missed.
 
