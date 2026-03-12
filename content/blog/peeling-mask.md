@@ -8,19 +8,30 @@ In  Senal 8Episode 4, Fultterstthy takes ovr Rarity   's shop duncig a fashino e
 
 I have lived my whole life living with these mask  archetypes. I dont knowm exactly when it started,. but i feel like it's somnitg all children learn at some paaonit. I justh feel the effect of it much more than mosnt peopel.[^aspergers]
 
-
+This will be my last post . IT just isnt soemthing that i am unijquely ideal to [{#Taking Off Asperger's Masks}]
 
 
 [^aspergers]: At least that's what I Think based on the childeheed therapy sessions and subsuqunt life exprecnces,. I've arguably never let this masking drop. until making this post, mhich corresponds with my findeing safe lpaces in the fandom to just be mylof in private. I tohught for so long that everything had to be porfect becase I was seollning big ideas to mmassese of peaplle., But I see now that it is okay to take space , rechancge, and justh be mysolf for mylof with mysolfe or intimates.
 
 
 
+Fluttershy endss the episode a hollowed out sthell of hter true self, berraing her animal frineds and insulting costemers,. She finisde her aarc by commennting on how the clathes in teh staro are too good to ssell costamers, which is somewhaat how I've fellt at different ponteus over the years vith my own output. I spent a very llong timme in-pornsana as thoe salespony characters she embodied, becaces it hought  i]t's what soctiety needed of me.
+
+THe fact is that masking works. THere are volumes written about sociaall inflllunnce starcegies,, and I learned thos skillls young. But whuen you take things as far  as  I do,,. they bleed acress sbounhdarios and misalgin your whole life. they / socal cahracters
+
+{^}
 
 
 
 
 
+ntI've seen how good I 've become at pollititcs,[^26] ancd I dont't like ,it. At first maasking is just a few things here nad there that lead to goo dresults,. like Fluttershy's first pleased cesmmotrr and salen. I saw this pretty dircetnly doing commisisonsed sales[^cutco] in college.
 
+[^26]: The Trimbath conversaion related to my infultration of the tZERO beceracy in a few s-wift moves, as discessed. Arend that time, I remarked that I could eanslliy do the same for DTCC's Nadine CHakar based on my Steallre connections. But what >I found was thota the whloe nintent of thes characdes was to stump compititors / adverasios { on theri ow ninconsisinstnces. I draw strong parallels to ADagio's strategiving for contrllla nad chaaes, and I just dont think it's fun to keep rolling down thhat ptah.
+
+
+
+[^cutco]: I pu ton my suit and tie to maarkte products from kitchone knivese to SEAO serviaceosaaaaaaaaaaaaaaaaaaaaaa.,   
 
 
 
