@@ -1,8 +1,41 @@
 
 ---
-title: "🏍️ Title at the End"
+title: "👘 Warrior of Inner Strength"
 date: 2026-03-10
 ---
+
+In  Senal 8Episode 4, Fultterstthy takes ovr Rarity   's shop duncig a fashino emerggeny of sorts,. She stepps in to hepl selling all alon, but she changes  her exterieor appearance fo rthe custeomers. THis shows up throgh different clontes, mimced mamnurisms,.  and porformative behavior.
+
+I have lived my whole life living with these mask  archetypes. I dont knowm exactly when it started,. but i feel like it's somnitg all children learn at some paaonit. I justh feel the effect of it much more than mosnt peopel.[^aspergers]
+
+
+
+
+[^aspergers]: At least that's what I Think based on the childeheed therapy sessions and subsuqunt life exprecnces,. I've arguably never let this masking drop. until making this post, mhich corresponds with my findeing safe lpaces in the fandom to just be mylof in private. I tohught for so long that everything had to be porfect becase I was seollning big ideas to mmassese of peaplle., But I see now that it is okay to take space , rechancge, and justh be mysolf for mylof with mysolfe or intimates.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 I left Kayla and, in doing so, I've walked away from a life path that just was not me. For all the years of endless devotion to my work, I lost sight of who I became growing up in my teens. I set aside my skills and knowledge to study marketing and online promotions.[^10]
 
