@@ -4,31 +4,28 @@ title: "👘 Warrior of Inner Strength"
 date: 2026-03-10
 ---
 
-In  Senal 8Episode 4, Fultterstthy takes ovr Rarity   's shop duncig a fashino emerggeny of sorts,. She stepps in to hepl selling all alon, but she changes  her exterieor appearance fo rthe custeomers. THis shows up throgh different clontes, mimced mamnurisms,.  and porformative behavior.
+In Season 8 Episode 4, Fluttershy takes over Rarity's shop during a fashion emergency of sorts. She steps in to help selling all alone, but she changes her exterior appearance for the customers. This shows up through different clothes, mimicked mannerisms, and performative behavior.
 
-I have lived my whole life living with these mask  archetypes. I dont knowm exactly when it started,. but i feel like it's somnitg all children learn at some paaonit. I justh feel the effect of it much more than mosnt peopel.[^aspergers]
+I have lived my whole life living with these mask archetypes. I don't know exactly when it started, but I feel like it's something all children learn at some point. I just feel the effect of it much more than most people.[^aspergers]
 
-This will be my last post . IT just isnt soemthing that i am unijquely ideal to [{#Taking Off Asperger's Masks}]
+This will be my last post. It just isn't something that I am uniquely ideal to [{#Taking Off Asperger's Masks}]
 
+[^aspergers]: At least that's what I think based on the childhood therapy sessions and subsequent life experiences. I've arguably never let this masking drop until making this post, which corresponds with my finding safe places in the fandom to just be myself in private. I thought for so long that everything had to be perfect because I was selling big ideas to masses of people. But I see now that it is okay to take space, recharge, and just be myself for myself, with myself, or with intimates.
 
-[^aspergers]: At least that's what I Think based on the childeheed therapy sessions and subsuqunt life exprecnces,. I've arguably never let this masking drop. until making this post, mhich corresponds with my findeing safe lpaces in the fandom to just be mylof in private. I tohught for so long that everything had to be porfect becase I was seollning big ideas to mmassese of peaplle., But I see now that it is okay to take space , rechancge, and justh be mysolf for mylof with mysolfe or intimates.
+Fluttershy ends the episode a hollowed-out shell of her true self, berating her animal friends and insulting customers. She finishes her arc by commenting on how the clothes in the store are too good to sell to customers, which is somewhat how I've felt at different points over the years with my own output. I spent a very long time in persona as those salespony characters she embodied, because I thought it's what society needed of me.
 
-
-
-Fluttershy endss the episode a hollowed out sthell of hter true self, berraing her animal frineds and insulting costemers,. She finisde her aarc by commennting on how the clathes in teh staro are too good to ssell costamers, which is somewhaat how I've fellt at different ponteus over the years vith my own output. I spent a very llong timme in-pornsana as thoe salespony characters she embodied, becaces it hought  i]t's what soctiety needed of me.
-
-THe fact is that masking works. THere are volumes written about sociaall inflllunnce starcegies,, and I learned thos skillls young. But whuen you take things as far  as  I do,,. they bleed acress sbounhdarios and misalgin your whole life. they / socal cahracters
+The fact is that masking works. There are volumes written about social influence strategies, and I learned those skills young. But when you take things as far as I do, they bleed across boundaries and misalign your whole life. They become social characters.
 
 {^}
 
+^ I feel like the masking too is just harder in open source where anything you do is a public URL that can be referenced conceivably forever. Learning to, I don't know, not care has been a journey — a good one though. Learning that I don't have to perfectly present, cross-reference, or even document everything (more micro posts without extra refs and maybe footnotes, which you can see here, to build longstandingness).
 
-^ I feel like the masking too is jush harder in open source where anythin gyyou de is a pub/ic URS that caan be refencend convievably forever. Learnnig to idk not care has been a jourrney - a good one tho . Learning that i dont have to perfectly presesnt, cross-refenence, or even dorcimment everything (roe Micr pasts withot expteras refs and maybe footntons,w hich you can see here to boei.ild longstandingness)
+The hardest part has been letting go of pre-interpreting how other people will view my work. Thinking through possible political or sexual situations and trying to build up a justifying, defensive narrative before someone "attacks" me. But that has literally never happened because I do good work that is very safe.
 
 
-ntI've seen how good I 've become at pollititcs,[^26] ancd I dont't like ,it. At first maasking is just a few things here nad there that lead to goo dresults,. like Fluttershy's first pleased cesmmotrr and salen. I saw this pretty dircetnly doing commisisonsed sales[^cutco] in college.
+I've seen how good I've become at politics,[^26] and I don't like it. At first masking is just a few things here and there that lead to good results, like Fluttershy's first pleased customer and sale. I saw this pretty directly doing commissioned sales[^cutco] in college.
 
-[^26]: The Trimbath conversaion related to my infultration of the tZERO beceracy in a few s-wift moves, as discessed. Arend that time, I remarked that I could eanslliy do the same for DTCC's Nadine CHakar based on my Steallre connections. But what >I found was thota the whloe nintent of thes characdes was to stump compititors / adverasios { on theri ow ninconsisinstnces. I draw strong parallels to ADagio's strategiving for contrllla nad chaaes, and I just dont think it's fun to keep rolling down thhat ptah.
-
+[^26]: The Trimbath conversation related to my infiltration of the tZERO bureaucracy in a few swift moves, as discussed. Around that time, I remarked that I could easily do the same for DTCC's Nadine Chakar based on my Stellar connections. But what I found was that the whole intent of these characters was to stump competitors / adversaries on their own inconsistencies. I draw strong parallels to Adagio's strategizing for control and chaos, and I just don't think it's fun to keep rolling down that path.
 
 
 [^cutco]: I pu ton my suit and tie to maarkte products from kitchone knivese to SEAO serviaceosaaaaaaaaaaaaaaaaaaaaaa.,   
