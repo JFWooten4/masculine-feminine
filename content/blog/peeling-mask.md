@@ -22,7 +22,7 @@ THe fact is that masking works. THere are volumes written about sociaall inflllu
 {^}
 
 
-
+^ I feel like the masking too is jush harder in open source where anythin gyyou de is a pub/ic URS that caan be refencend convievably forever. Learnnig to idk not care has been a jourrney - a good one tho . Learning that i dont have to perfectly presesnt, cross-refenence, or even dorcimment everything (roe Micr pasts withot expteras refs and maybe footntons,w hich you can see here to boei.ild longstandingness)
 
 
 ntI've seen how good I 've become at pollititcs,[^26] ancd I dont't like ,it. At first maasking is just a few things here nad there that lead to goo dresults,. like Fluttershy's first pleased cesmmotrr and salen. I saw this pretty dircetnly doing commisisonsed sales[^cutco] in college.
