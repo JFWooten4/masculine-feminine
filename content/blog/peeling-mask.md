@@ -296,7 +296,6 @@ By the end of the month I was learning how to set boundaries.
 
 Lastly I saw the cost of living for others, including my parents.
 
-One thing I've noticed a lot is that I am in the position of the bitch.
 
 There was a 4x - 3 hr dep on last Sat the 7th.
 
