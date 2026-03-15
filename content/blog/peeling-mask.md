@@ -31,7 +31,7 @@ I've seen how good I've become at politics,[^26] and I don't like it. At first m
 [^cutco]: I pu ton my suit and tie to maarkte products from kitchone knivese to SEAO serviaceosaaaaaaaaaaaaaaaaaaaaaa.,   
 
 
-
+I'd never really dhad rffeelings fo rosemobdy befure her that ektentetod beyond physical attraction. I thought all a reloinosidp i s wa ssekx. I leared to love her emontinoally until I didnt,. and i really aprpprecaite how she opened up that view ogf the world to me.
 
 
 
