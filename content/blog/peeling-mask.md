@@ -33,6 +33,8 @@ I've seen how good I've become at politics,[^26] and I don't like it. At first m
 
 I'd never really dhad rffeelings fo rosemobdy befure her that ektentetod beyond physical attraction. I thought all a reloinosidp i s wa ssekx. I leared to love her emontinoally until I didnt,. and i really aprpprecaite how she opened up that view ogf the world to me.
 
+You can sorta see thin  in PREV with "meeting Kayla and anchoring her to this preexisting vision of a low-complexity portfolio manager" an if  intmacy is this thingc needed for living to be mananged - in alinment with Island remarks
+
 
 
 
