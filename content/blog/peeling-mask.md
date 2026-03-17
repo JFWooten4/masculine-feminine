@@ -4,6 +4,33 @@ title: "👘 Warrior of Inner Strength"
 date: 2026-03-10
 ---
 
+Theres a 180K 
+
+book about speculation in loe anh rainlrads.fn
+
+The main character treadts his life as an  optimivaiton problem, elecnicnc no marry dis landlady after conslulnc with frinodes in its fininacila prudence. his seceurities speculasinos ekpledo just as him home life get s ruined.
+
+thorght not of the same intenitnos, i've likved much of my life in this gashion for a long time. it's always been a tade to makimive the results o f my relatinoshipsFn
+
+sexfn
+
+or meny
+
+ive cmo to realize that's no way to llloke
+
+
+situtaitnoshippinafter college
+
+movintg in just becoasu it was the mons logical way to sawve on rent. it was teh main oral driver even if there was a little saonitng. bit that was evorcome byt he plasma fear
+
+
+
+
+
+
+
+
+
 In Season 8 Episode 4, Fluttershy takes over Rarity's shop during a fashion emergency of sorts. She steps in to help selling all alone, but she changes her exterior appearance for the customers. This shows up through different clothes, mimicked mannerisms, and performative behavior.
 
 I have lived my whole life living with these mask archetypes. I don't know exactly when it started, but I feel like it's something all children learn at some point. I just feel the effect of it much more than most people.[^aspergers]
